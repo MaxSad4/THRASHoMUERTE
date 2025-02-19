@@ -175,6 +175,9 @@ THRASH o MUERTE - это радиопрограмма, посвященная э
 
 
 ### Февраль
-- [103] 02.02.25 - Итоги Года-11: Балканы и Греция. Хэви и Трэш
-- [104] 06.02.25 - Итоги Года-12: Британия. Хард Рок
-- [105] 13.02.25 - История Стиля. Блок-7: Европейский Дет
+- [103] 02.02.25 - Итоги Года-11: Балканы и Греция. Хэви и Трэш [🎵 YouTube Music](https://music.youtube.com/playlist?list=PLeRIoOrY1bYRLdOd1Cyu4Cw1itUjLY2cB) [📺 YouTube](https://youtube.com/playlist?list=PLeRIoOrY1bYRLdOd1Cyu4Cw1itUjLY2cB)
+
+- [104] 06.02.25 - Итоги Года-12: Британия. Хард Рок [🎵 YouTube Music](https://music.youtube.com/playlist?list=PLeRIoOrY1bYTtZDXuQYMm9QnUEtlQKUDB) [📺 YouTube](https://youtube.com/playlist?list=PLeRIoOrY1bYTtZDXuQYMm9QnUEtlQKUDB)
+
+- [105] 13.02.25 - История Стиля. Блок-7: Европейский Дет [🎵 YouTube Music](https://music.youtube.com/playlist?list=PLeRIoOrY1bYTHAx18O37ejFhxZHe5-oHu) [📺 YouTube](https://youtube.com/playlist?list=PLeRIoOrY1bYTHAx18O37ejFhxZHe5-oHu)
+
