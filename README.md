@@ -168,7 +168,7 @@ THRASH o MUERTE - это радиопрограмма, посвященная э
 ## 2025
 
 ### Январь
-- [99] 13.01.25 - Итоги Года-7: Южная Америка. Хэви и Трэш
+- [99] 13.01.25 - Итоги Года-7: Южная Америка. Хэви и Трэш [🎵 YouTube Music](https://music.youtube.com/playlist?list=PLeRIoOrY1bYTY66vIDXY-CBp8e2ttzYLL) [📺 YouTube](https://youtube.com/playlist?list=PLeRIoOrY1bYTY66vIDXY-CBp8e2ttzYLL)
 - [100] 20.01.25 - Итоги Года-8: Южная Европа. Хэви и Трэш [🎵 YouTube Music](https://music.youtube.com/playlist?list=PLeRIoOrY1bYSkuVf24Ah1YFtWMD_ecrQ7) [📺 YouTube](https://youtube.com/playlist?list=PLeRIoOrY1bYSkuVf24Ah1YFtWMD_ecrQ7)
 - [101] 23.01.25 - Итоги Года-9: США. Дэт [🎵 YouTube Music](https://music.youtube.com/playlist?list=PLeRIoOrY1bYT4h705QyWTPBy9yOfoE_ZJ) [📺 YouTube](https://youtube.com/playlist?list=PLeRIoOrY1bYT4h705QyWTPBy9yOfoE_ZJ)
 
