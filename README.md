@@ -1,4 +1,4 @@
-# THRASH o MUERTE
+# THRASH o MUERTE 🤟🏻💀
 
 ## О проекте
 
