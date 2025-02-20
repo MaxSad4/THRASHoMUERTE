@@ -171,14 +171,9 @@ THRASH o MUERTE - это радиопрограмма, посвященная э
 - [99] 13.01.25 - Итоги Года-7: Южная Америка. Хэви и Трэш [🎵 YouTube Music](https://music.youtube.com/playlist?list=PLeRIoOrY1bYTY66vIDXY-CBp8e2ttzYLL) [📺 YouTube](https://youtube.com/playlist?list=PLeRIoOrY1bYTY66vIDXY-CBp8e2ttzYLL)
 - [100] 20.01.25 - Итоги Года-8: Южная Европа. Хэви и Трэш [🎵 YouTube Music](https://music.youtube.com/playlist?list=PLeRIoOrY1bYSkuVf24Ah1YFtWMD_ecrQ7) [📺 YouTube](https://youtube.com/playlist?list=PLeRIoOrY1bYSkuVf24Ah1YFtWMD_ecrQ7)
 - [101] 23.01.25 - Итоги Года-9: США. Дэт [🎵 YouTube Music](https://music.youtube.com/playlist?list=PLeRIoOrY1bYT4h705QyWTPBy9yOfoE_ZJ) [📺 YouTube](https://youtube.com/playlist?list=PLeRIoOrY1bYT4h705QyWTPBy9yOfoE_ZJ)
-
 - [102] 27.01.25 - Итоги Года-10: Восточная Европа. Хэви [🎵 YouTube Music](https://music.youtube.com/playlist?list=PLeRIoOrY1bYTTjAkBXRs1-1-PPGnPyF_i) [📺 YouTube](https://youtube.com/playlist?list=PLeRIoOrY1bYTTjAkBXRs1-1-PPGnPyF_i)
-
 
 ### Февраль
 - [103] 02.02.25 - Итоги Года-11: Балканы и Греция. Хэви и Трэш [🎵 YouTube Music](https://music.youtube.com/playlist?list=PLeRIoOrY1bYRLdOd1Cyu4Cw1itUjLY2cB) [📺 YouTube](https://youtube.com/playlist?list=PLeRIoOrY1bYRLdOd1Cyu4Cw1itUjLY2cB)
-
 - [104] 06.02.25 - Итоги Года-12: Британия. Хард Рок [🎵 YouTube Music](https://music.youtube.com/playlist?list=PLeRIoOrY1bYTtZDXuQYMm9QnUEtlQKUDB) [📺 YouTube](https://youtube.com/playlist?list=PLeRIoOrY1bYTtZDXuQYMm9QnUEtlQKUDB)
-
 - [105] 13.02.25 - История Стиля. Блок-7: Европейский Дет [🎵 YouTube Music](https://music.youtube.com/playlist?list=PLeRIoOrY1bYTHAx18O37ejFhxZHe5-oHu) [📺 YouTube](https://youtube.com/playlist?list=PLeRIoOrY1bYTHAx18O37ejFhxZHe5-oHu)
-
