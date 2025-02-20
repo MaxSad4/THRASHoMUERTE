@@ -157,13 +157,13 @@ THRASH o MUERTE - это радиопрограмма, посвященная э
 
 ### Декабрь
 - [91] 09.12.24 - Кип ит Тру-5: Перу
-- [92] 12.12.24 - Итоги Года-1: Азия
-- [93] 16.12.24 - Итоги Года-2: Канадский Хэви
-- [94] 19.12.24 - Итоги Года-3: США. Трэш
-- [95] 23.12.24 - Итоги Года-4: Германия. Хэви и Трэш
-- [96] 26.12.24 - Итоги Года-5: Скандинавия. Хэви
-- [97] 30.12.24 - Итоги Года-6: Россия. Хэви
-- [98] 31.12.24 - Спецпрограмма: Технохэлл. Демономания-8. С Новым Годом!
+- [92] 12.12.24 - Итоги Года-1: Азия [🎵 YouTube Music](https://music.youtube.com/playlist?list=PLeRIoOrY1bYRjYwva6n-rnGV0_IIMuGSi) [📺 YouTube](https://youtube.com/playlist?list=PLeRIoOrY1bYRjYwva6n-rnGV0_IIMuGSi)
+- [93] 16.12.24 - Итоги Года-2: Канадский Хэви [🎵 YouTube Music](https://music.youtube.com/playlist?list=PLeRIoOrY1bYTZZLAxycCJPzCcfVF50Wd4) [📺 YouTube](https://youtube.com/playlist?list=PLeRIoOrY1bYTZZLAxycCJPzCcfVF50Wd4)
+- [94] 19.12.24 - Итоги Года-3: США. Трэш [🎵 YouTube Music](https://music.youtube.com/playlist?list=PLeRIoOrY1bYRA4VBHo7Y6b0wEek5B2xVH) [📺 YouTube](https://youtube.com/playlist?list=PLeRIoOrY1bYRA4VBHo7Y6b0wEek5B2xVH)
+- [95] 23.12.24 - Итоги Года-4: Германия. Хэви и Трэш [🎵 YouTube Music](https://music.youtube.com/playlist?list=PLeRIoOrY1bYT6PpAkFlDdHmBkaAc-C5Fk) [📺 YouTube](https://youtube.com/playlist?list=PLeRIoOrY1bYT6PpAkFlDdHmBkaAc-C5Fk)
+- [96] 26.12.24 - Итоги Года-5: Скандинавия. Хэви [🎵 YouTube Music](https://music.youtube.com/playlist?list=PLeRIoOrY1bYT2S1QrKV40RKNByFTAfUIH) [📺 YouTube](https://youtube.com/playlist?list=PLeRIoOrY1bYT2S1QrKV40RKNByFTAfUIH)
+- [97] 30.12.24 - Итоги Года-6: Россия. Хэви [🎵 YouTube Music](https://music.youtube.com/playlist?list=PLeRIoOrY1bYTsoLEZFpRhhI7Zd1xWU4ZN) [📺 YouTube](https://youtube.com/playlist?list=PLeRIoOrY1bYTsoLEZFpRhhI7Zd1xWU4ZN)
+- [98] 31.12.24 - Спецпрограмма: Технохэлл. Демономания-8. С Новым Годом! [🎵 YouTube Music](https://music.youtube.com/playlist?list=PLeRIoOrY1bYRx0aQuCI8kuzrBS6LqldEJ) [📺 YouTube](https://youtube.com/playlist?list=PLeRIoOrY1bYRx0aQuCI8kuzrBS6LqldEJ)
 
 ## 2025
 
