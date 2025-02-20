@@ -36,10 +36,10 @@ THRASH o MUERTE - это радиопрограмма, посвященная э
 ## 2023
 
 ### Сентябрь
-- [01] 01.09.23 - Пилотная программа. Трэш. Эквадор
-- [02] 04.09.23 - Пилотная программа-2. Хэви. Аргентина
-- [03] 10.09.23 - ПП-3. Хэви. Южная Америка
-- [04] 16.09.23 - Пилотная программа-4. Бразильский Метал
+- [01] 01.09.23 - Пилотная программа. Трэш. Эквадор [🎵 YouTube Music](https://music.youtube.com/playlist?list=PLeRIoOrY1bYRw9CF26jycN1KDUE3H8JDt) [📺 YouTube](https://youtube.com/playlist?list=PLeRIoOrY1bYRw9CF26jycN1KDUE3H8JDt)
+- [02] 04.09.23 - Пилотная программа - 2. Хэви. Аргентина [🎵 YouTube Music](https://music.youtube.com/playlist?list=PLeRIoOrY1bYSaHGBGND7gT2FfQjMj5Z1e) [📺 YouTube](https://youtube.com/playlist?list=PLeRIoOrY1bYSaHGBGND7gT2FfQjMj5Z1e)
+- [03] 10.09.23 - Пилотная программа - 3. Хэви. Южная Америка [🎵 YouTube Music](https://music.youtube.com/playlist?list=PLeRIoOrY1bYSGqM_YCmc52no5wKbee4g5) [📺 YouTube](https://youtube.com/playlist?list=PLeRIoOrY1bYSGqM_YCmc52no5wKbee4g5)
+- [04] 16.09.23 - Пилотная программа - 4. Бразильский Метал [🎵 YouTube Music](https://music.youtube.com/playlist?list=PLeRIoOrY1bYQ4xShRVvK-lTnIwNX4hwAH) [📺 YouTube](https://youtube.com/playlist?list=PLeRIoOrY1bYQ4xShRVvK-lTnIwNX4hwAH)
 - [05] 19.09.23 - ПП-5. Парагвайский Метал
 - [06] 25.09.23 - Обзоры: Пэган (Словакия) / Блэк (Индонезия) / НСБМ (Финляндия) / Мозамбикский экстрим-метал
 
