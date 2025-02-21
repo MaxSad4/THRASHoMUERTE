@@ -153,10 +153,10 @@ THRASH o MUERTE - это радиопрограмма, посвященная э
 - [87] 04.11.24 - Итоги. Пилотная программа: Пауэр Метал. Европа
 - [88] 11.11.24 - История Стиля. Блок-5: Викингарок
 - [89] 21.11.24 - Демономания-7: Кровавые Боги Вахи
-- [90] 25.11.24 - История Стиля. Блок-6: Кроссовер
+- [90] 25.11.24 - История Стиля. Блок-6: Кроссовер [🎵 YouTube Music](https://music.youtube.com/playlist?list=PLeRIoOrY1bYRpE2VOaVcGoF6IpyTtSqHJ) [📺 YouTube](https://youtube.com/playlist?list=PLeRIoOrY1bYRpE2VOaVcGoF6IpyTtSqHJ)
 
 ### Декабрь
-- [91] 09.12.24 - Кип ит Тру-5: Перу
+- [91] 09.12.24 - Кип ит Тру-5: Перу [🎵 YouTube Music](https://music.youtube.com/playlist?list=PLeRIoOrY1bYQnN_9p_aes1OqGM4nKo5Ni) [📺 YouTube](https://youtube.com/playlist?list=PLeRIoOrY1bYQnN_9p_aes1OqGM4nKo5Ni)
 - [92] 12.12.24 - Итоги Года-1: Азия [🎵 YouTube Music](https://music.youtube.com/playlist?list=PLeRIoOrY1bYRjYwva6n-rnGV0_IIMuGSi) [📺 YouTube](https://youtube.com/playlist?list=PLeRIoOrY1bYRjYwva6n-rnGV0_IIMuGSi)
 - [93] 16.12.24 - Итоги Года-2: Канадский Хэви [🎵 YouTube Music](https://music.youtube.com/playlist?list=PLeRIoOrY1bYTZZLAxycCJPzCcfVF50Wd4) [📺 YouTube](https://youtube.com/playlist?list=PLeRIoOrY1bYTZZLAxycCJPzCcfVF50Wd4)
 - [94] 19.12.24 - Итоги Года-3: США. Трэш [🎵 YouTube Music](https://music.youtube.com/playlist?list=PLeRIoOrY1bYRA4VBHo7Y6b0wEek5B2xVH) [📺 YouTube](https://youtube.com/playlist?list=PLeRIoOrY1bYRA4VBHo7Y6b0wEek5B2xVH)
