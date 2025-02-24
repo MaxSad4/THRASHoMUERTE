@@ -143,16 +143,16 @@ THRASH o MUERTE - это радиопрограмма, посвященная э
 - [81] 26.08.24 - Киношокер-5: Возвращение живых Трупов
 
 ### Октябрь
-- [82] 05.10.24 - Янг Блад-4. Европа
-- [83] 12.10.24 - История Стиля. Блок-4: СССР. Хэви
-- [84] 13.10.24 - История Стиля. Блок-4: СССР. Трэш
-- [85] 21.10.24 - РЕанимация. Мульт-клипы
-- [86] 28.10.24 - Блэк-н-Ролл. Латинская Америка
+- [82] 05.10.24 - Янг Блад-4. Европа [🎵 YouTube Music](https://music.youtube.com/playlist?list=PLeRIoOrY1bYSWQfrTSqvtoRpvoUR8lWi5) [📺 YouTube](https://youtube.com/playlist?list=PLeRIoOrY1bYSWQfrTSqvtoRpvoUR8lWi5)
+- [83] 12.10.24 - История Стиля. Блок-4: СССР. Хэви [🎵 YouTube Music](https://music.youtube.com/playlist?list=PLeRIoOrY1bYRKrFKhgg6qpE3FuB6rpAl8) [📺 YouTube](https://youtube.com/playlist?list=PLeRIoOrY1bYRKrFKhgg6qpE3FuB6rpAl8)
+- [84] 13.10.24 - История Стиля. Блок-4: СССР. Трэш [🎵 YouTube Music](https://music.youtube.com/playlist?list=PLeRIoOrY1bYQtxU-TOTYEeHi-pVSz71Fi) [📺 YouTube](https://youtube.com/playlist?list=PLeRIoOrY1bYQtxU-TOTYEeHi-pVSz71Fi)
+- [85] 21.10.24 - РЕанимация. Мульт-клипы [🎵 YouTube Music](https://music.youtube.com/playlist?list=PLeRIoOrY1bYTNPcUfhYqb9csZ5EWLGx54) [📺 YouTube](https://youtube.com/playlist?list=PLeRIoOrY1bYTNPcUfhYqb9csZ5EWLGx54)
+- [86] 28.10.24 - Блэк-н-Ролл. Латинская Америка [🎵 YouTube Music](https://music.youtube.com/playlist?list=PLeRIoOrY1bYSVOzNnBxfQTdP3lRspdAEs) [📺 YouTube](https://youtube.com/playlist?list=PLeRIoOrY1bYSVOzNnBxfQTdP3lRspdAEs)
 
 ### Ноябрь
-- [87] 04.11.24 - Итоги. Пилотная программа: Пауэр Метал. Европа
-- [88] 11.11.24 - История Стиля. Блок-5: Викингарок
-- [89] 21.11.24 - Демономания-7: Кровавые Боги Вахи
+- [87] 04.11.24 - Итоги. Пилотная программа: Пауэр Метал. Европа [🎵 YouTube Music](https://music.youtube.com/playlist?list=PLeRIoOrY1bYSkw9RQg6zbMKnM9f_6SbMh) [📺 YouTube](https://youtube.com/playlist?list=PLeRIoOrY1bYSkw9RQg6zbMKnM9f_6SbMh)
+- [88] 11.11.24 - История Стиля. Блок-5: Викингарок [🎵 YouTube Music](https://music.youtube.com/playlist?list=PLeRIoOrY1bYRraMfeGVETkyRDj9plSs9p) [📺 YouTube](https://youtube.com/playlist?list=PLeRIoOrY1bYRraMfeGVETkyRDj9plSs9p)
+- [89] 21.11.24 - Демономания-7: Кровавые Боги Вахи [🎵 YouTube Music](https://music.youtube.com/playlist?list=PLeRIoOrY1bYSZzsXVz4oGWtBpfw2l6NC_) [📺 YouTube](https://youtube.com/playlist?list=PLeRIoOrY1bYSZzsXVz4oGWtBpfw2l6NC_)
 - [90] 25.11.24 - История Стиля. Блок-6: Кроссовер [🎵 YouTube Music](https://music.youtube.com/playlist?list=PLeRIoOrY1bYRpE2VOaVcGoF6IpyTtSqHJ) [📺 YouTube](https://youtube.com/playlist?list=PLeRIoOrY1bYRpE2VOaVcGoF6IpyTtSqHJ)
 
 ### Декабрь
