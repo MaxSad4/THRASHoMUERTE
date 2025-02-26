@@ -137,10 +137,10 @@ THRASH o MUERTE - это радиопрограмма, посвященная э
 - [77] 25.07.24 - Кип ит Тру-3: Бразилия
 
 ### Август
-- [78] 01.08.24 - Кип ит Тру-3: Бразилия (часть 2)
-- [79] 05.08.24 - Киношокер-4: Порнозвезды и Хэви Метал
-- [80] 08.08.24 - Кип ит Тру-4
-- [81] 26.08.24 - Киношокер-5: Возвращение живых Трупов
+- [78] 01.08.24 - Кип ит Тру-3: Бразилия (часть 2) [🎵 YouTube Music](https://music.youtube.com/playlist?list=PLeRIoOrY1bYSQ7ywt5DwOp2ZPnkghiOMr) [📺 YouTube](https://youtube.com/playlist?list=PLeRIoOrY1bYSQ7ywt5DwOp2ZPnkghiOMr)
+- [79] 05.08.24 - Киношокер-4: Порнозвезды и Хэви Метал [🎵 YouTube Music](https://music.youtube.com/playlist?list=PLeRIoOrY1bYQolf1jxWGGTpa2-LD1pYQd) [📺 YouTube](https://youtube.com/playlist?list=PLeRIoOrY1bYQolf1jxWGGTpa2-LD1pYQd)
+- [80] 08.08.24 - Кип ит Тру-4 [🎵 YouTube Music](https://music.youtube.com/playlist?list=PLeRIoOrY1bYTpzcnRPmflPZaZqQzw93UH) [📺 YouTube](https://youtube.com/playlist?list=PLeRIoOrY1bYTpzcnRPmflPZaZqQzw93UH)
+- [81] 26.08.24 - Киношокер-5: Возвращение живых Трупов [🎵 YouTube Music](https://music.youtube.com/playlist?list=PLeRIoOrY1bYS6ffH6Erl7TOOEGzsgUiE-) [📺 YouTube](https://youtube.com/playlist?list=PLeRIoOrY1bYS6ffH6Erl7TOOEGzsgUiE-)
 
 ### Октябрь
 - [82] 05.10.24 - Янг Блад-4. Европа [🎵 YouTube Music](https://music.youtube.com/playlist?list=PLeRIoOrY1bYSWQfrTSqvtoRpvoUR8lWi5) [📺 YouTube](https://youtube.com/playlist?list=PLeRIoOrY1bYSWQfrTSqvtoRpvoUR8lWi5)
