@@ -132,9 +132,9 @@ THRASH o MUERTE - это радиопрограмма, посвященная э
 - [74] 27.06.24 - История Стиля. Блок-3: Американский Дэт-3
 
 ### Июль
-- [75] 04.07.24 - История Стиля. Блок-3: Американский Дэт-4
-- [76] 18.07.24 - История Стиля. Блок-4: Американский Дэт-5
-- [77] 25.07.24 - Кип ит Тру-3: Бразилия
+- [75] 04.07.24 - История Стиля. Блок-3: Американский Дэт-4 [🎵 YouTube Music](https://music.youtube.com/playlist?list=PLeRIoOrY1bYSfYgisRLPhQ79gq_mXHqsK) [📺 YouTube](https://youtube.com/playlist?list=PLeRIoOrY1bYSfYgisRLPhQ79gq_mXHqsK)
+- [76] 18.07.24 - История Стиля. Блок-4: Американский Дэт-5 [🎵 YouTube Music](https://music.youtube.com/playlist?list=PLeRIoOrY1bYSCIxmpzAATrlHvflR2HpEp) [📺 YouTube](https://youtube.com/playlist?list=PLeRIoOrY1bYSCIxmpzAATrlHvflR2HpEp)
+- [77] 25.07.24 - Кип ит Тру-3: Бразилия [🎵 YouTube Music](https://music.youtube.com/playlist?list=PLeRIoOrY1bYSmmNKx6yhAI-H_oQKJaC0c) [📺 YouTube](https://youtube.com/playlist?list=PLeRIoOrY1bYSmmNKx6yhAI-H_oQKJaC0c)
 
 ### Август
 - [78] 01.08.24 - Кип ит Тру-3: Бразилия (часть 2) [🎵 YouTube Music](https://music.youtube.com/playlist?list=PLeRIoOrY1bYSQ7ywt5DwOp2ZPnkghiOMr) [📺 YouTube](https://youtube.com/playlist?list=PLeRIoOrY1bYSQ7ywt5DwOp2ZPnkghiOMr)
