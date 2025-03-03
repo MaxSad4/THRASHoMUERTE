@@ -128,7 +128,7 @@ THRASH o MUERTE - это радиопрограмма, посвященная э
 - [70] 03.06.24 - Тотальный обзор. Блок-4: Чили. Блэк
 - [71] 10.06.24 - Киношокер-3: Ужасы и Треш
 - [72] 13.06.24 - История Стиля. Блок-3: Американский Дэт [🎵 YouTube Music](https://music.youtube.com/playlist?list=PLeRIoOrY1bYSNefMy3yeCxp3xaljpEksV) [📺 YouTube](https://youtube.com/playlist?list=PLeRIoOrY1bYSNefMy3yeCxp3xaljpEksV)
-- [73] 17.06.24 - История Стиля. Блок-3: Американский Дэт-2 [🎵 YouTube Music](https://music.youtube.com/playlist?list=PLeRIoOrY1bYSQBc44ZR8ifXmH-mhyzMqq) [📺 YouTube](https://youtube.com/playlist?list=PLeRIoOrY1bYSQBc44ZR8ifXmH-mhyzMqq)
+- [73] 17.06.24 - История Стиля. Блок-3: Американский Дэт-2 [🎵 YouTube Music](https://music.youtube.com/playlist?list=PLeRIoOrY1bYTLn_JKU-88oW4FnjqNmnWl) [📺 YouTube](https://youtube.com/playlist?list=PLeRIoOrY1bYTLn_JKU-88oW4FnjqNmnWl)
 - [74] 27.06.24 - История Стиля. Блок-3: Американский Дэт-3 [🎵 YouTube Music](https://music.youtube.com/playlist?list=PLeRIoOrY1bYQWYVDugp9lpBbGreKHJSpA) [📺 YouTube](https://youtube.com/playlist?list=PLeRIoOrY1bYQWYVDugp9lpBbGreKHJSpA)
 
 ### Июль
