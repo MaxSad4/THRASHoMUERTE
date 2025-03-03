@@ -127,9 +127,9 @@ THRASH o MUERTE - это радиопрограмма, посвященная э
 ### Июнь
 - [70] 03.06.24 - Тотальный обзор. Блок-4: Чили. Блэк
 - [71] 10.06.24 - Киношокер-3: Ужасы и Треш
-- [72] 13.06.24 - История Стиля. Блок-3: Американский Дэт
-- [73] 17.06.24 - История Стиля. Блок-3: Американский Дэт-2
-- [74] 27.06.24 - История Стиля. Блок-3: Американский Дэт-3
+- [72] 13.06.24 - История Стиля. Блок-3: Американский Дэт [🎵 YouTube Music](https://music.youtube.com/playlist?list=PLeRIoOrY1bYSNefMy3yeCxp3xaljpEksV) [📺 YouTube](https://youtube.com/playlist?list=PLeRIoOrY1bYSNefMy3yeCxp3xaljpEksV)
+- [73] 17.06.24 - История Стиля. Блок-3: Американский Дэт-2 [🎵 YouTube Music](https://music.youtube.com/playlist?list=PLeRIoOrY1bYQjaGaPer8LypSAdUVskJu3) [📺 YouTube](https://youtube.com/playlist?list=PLeRIoOrY1bYQjaGaPer8LypSAdUVskJu3)
+- [74] 27.06.24 - История Стиля. Блок-3: Американский Дэт-3 [🎵 YouTube Music](https://music.youtube.com/playlist?list=PLeRIoOrY1bYQWYVDugp9lpBbGreKHJSpA) [📺 YouTube](https://youtube.com/playlist?list=PLeRIoOrY1bYQWYVDugp9lpBbGreKHJSpA)
 
 ### Июль
 - [75] 04.07.24 - История Стиля. Блок-3: Американский Дэт-4 [🎵 YouTube Music](https://music.youtube.com/playlist?list=PLeRIoOrY1bYSfYgisRLPhQ79gq_mXHqsK) [📺 YouTube](https://youtube.com/playlist?list=PLeRIoOrY1bYSfYgisRLPhQ79gq_mXHqsK)
@@ -180,3 +180,4 @@ THRASH o MUERTE - это радиопрограмма, посвященная э
 - [106] 20.02.25 - ВАМПИРИЯ 🦇-тематический выпуск [🎵 YouTube Music](https://music.youtube.com/playlist?list=PLeRIoOrY1bYSQ0FU6klclhq15xzM8qn87) [📺 YouTube](https://youtube.com/playlist?list=PLeRIoOrY1bYSQ0FU6klclhq15xzM8qn87)
 - [107] 24.02.25 - СОТЫЙ выпуск THRASH o MUERTE - ☝🏻💀 БЕСТ оф зы БЕСТ тащемта [🎵 YouTube Music](https://music.youtube.com/playlist?list=PLeRIoOrY1bYRv1ANplG5Gh43NizGdPPEn) [📺 YouTube](https://youtube.com/playlist?list=PLeRIoOrY1bYRv1ANplG5Gh43NizGdPPEn)
 - [108] 27.02.25 - ТОТАЛЬНЫЙ ОБЗОР: Сцена САЛЬВАДОРА. ХЭВИ МЕТАЛ ! [🎵 YouTube Music](https://music.youtube.com/playlist?list=PLeRIoOrY1bYTg08SJG7tTcFuDQYN_LDmI) [📺 YouTube](https://youtube.com/playlist?list=PLeRIoOrY1bYTg08SJG7tTcFuDQYN_LDmI)
+- [109] 03.03.25 - ТОТАЛЬНЫЙ ОБЗОР. Сальвадор 🇸🇻 , часть 2-я. ТРЭШ МЕТАЛ. [🎵 YouTube Music](https://music.youtube.com/playlist?list=PLeRIoOrY1bYRCcDeveIWxI6gMTha8lWed) [📺 YouTube](https://youtube.com/playlist?list=PLeRIoOrY1bYRCcDeveIWxI6gMTha8lWed)
