@@ -119,14 +119,14 @@ THRASH o MUERTE - это радиопрограмма, посвященная э
 - [65] 30.04.24 - Спецвыпуск: Вальпургиева Ночь
 
 ### Май
-- [66] 06.05.24 - Греческий Трэш
-- [67] 13.05.24 - Тотальный обзор. Блок-4: Чили. Хэви
-- [68] 27.05.24 - Тотальный обзор. Блок-4: Чили. Трэш
-- [69] 30.05.24 - Тотальный обзор. Блок-4: Чили. Дэт
+- [66] 06.05.24 - Греческий Трэш [🎵 YouTube Music](https://music.youtube.com/playlist?list=PLeRIoOrY1bYQIyXzqYG5qvbYaJG7fDDyU) [📺 YouTube](https://youtube.com/playlist?list=PLeRIoOrY1bYQIyXzqYG5qvbYaJG7fDDyU)
+- [67] 13.05.24 - Тотальный обзор. Блок-4: Чили. Хэви [🎵 YouTube Music](https://music.youtube.com/playlist?list=PLeRIoOrY1bYRVpSIn6ntJnH3Gi2uSqo0e) [📺 YouTube](https://youtube.com/playlist?list=PLeRIoOrY1bYRVpSIn6ntJnH3Gi2uSqo0e)
+- [68] 27.05.24 - Тотальный обзор. Блок-4: Чили. Трэш [🎵 YouTube Music](https://music.youtube.com/playlist?list=PLeRIoOrY1bYQDHlTOOLyTkKZavcZC7Xe1) [📺 YouTube](https://youtube.com/playlist?list=PLeRIoOrY1bYQDHlTOOLyTkKZavcZC7Xe1)
+- [69] 30.05.24 - Тотальный обзор. Блок-4: Чили. Дэт [🎵 YouTube Music](https://music.youtube.com/playlist?list=PLeRIoOrY1bYQQr9dS4MQtF532xkZeTQla) [📺 YouTube](https://youtube.com/playlist?list=PLeRIoOrY1bYQQr9dS4MQtF532xkZeTQla)
 
 ### Июнь
-- [70] 03.06.24 - Тотальный обзор. Блок-4: Чили. Блэк
-- [71] 10.06.24 - Киношокер-3: Ужасы и Треш
+- [70] 03.06.24 - Тотальный обзор. Блок-4: Чили. Блэк [🎵 YouTube Music](https://music.youtube.com/playlist?list=PLeRIoOrY1bYQx1A44lsBHfFq1AOzZZuJu) [📺 YouTube](https://youtube.com/playlist?list=PLeRIoOrY1bYQx1A44lsBHfFq1AOzZZuJu)
+- [71] 10.06.24 - Киношокер-3: Ужасы и Треш [🎵 YouTube Music](https://music.youtube.com/playlist?list=PLeRIoOrY1bYQFc7_s38DQYOi_o_SYrolV) [📺 YouTube](https://youtube.com/playlist?list=PLeRIoOrY1bYQFc7_s38DQYOi_o_SYrolV)
 - [72] 13.06.24 - История Стиля. Блок-3: Американский Дэт [🎵 YouTube Music](https://music.youtube.com/playlist?list=PLeRIoOrY1bYSNefMy3yeCxp3xaljpEksV) [📺 YouTube](https://youtube.com/playlist?list=PLeRIoOrY1bYSNefMy3yeCxp3xaljpEksV)
 - [73] 17.06.24 - История Стиля. Блок-3: Американский Дэт-2 [🎵 YouTube Music](https://music.youtube.com/playlist?list=PLeRIoOrY1bYTLn_JKU-88oW4FnjqNmnWl) [📺 YouTube](https://youtube.com/playlist?list=PLeRIoOrY1bYTLn_JKU-88oW4FnjqNmnWl)
 - [74] 27.06.24 - История Стиля. Блок-3: Американский Дэт-3 [🎵 YouTube Music](https://music.youtube.com/playlist?list=PLeRIoOrY1bYQWYVDugp9lpBbGreKHJSpA) [📺 YouTube](https://youtube.com/playlist?list=PLeRIoOrY1bYQWYVDugp9lpBbGreKHJSpA)
