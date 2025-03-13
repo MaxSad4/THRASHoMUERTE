@@ -115,8 +115,8 @@ THRASH o MUERTE - это радиопрограмма, посвященная э
 - [61] 15.04.24 - История Стиля. Блок-1: Дум Метал-3. Сборники
 - [62] 18.04.24 - История Стиля. Блок-2: Глэм
 - [63] 22.04.24 - История Стиля. Блок-2: Глэм-2
-- [64] 25.04.24 - История Стиля. Блок-2: Глэм-3
-- [65] 30.04.24 - Спецвыпуск: Вальпургиева Ночь
+- [64] 25.04.24 - История Стиля. Блок-2: Глэм-3 [🎵 YouTube Music](https://music.youtube.com/playlist?list=PLeRIoOrY1bYQpBBLpd58y3_JdHKvha6b1) [📺 YouTube](https://youtube.com/playlist?list=PLeRIoOrY1bYQpBBLpd58y3_JdHKvha6b1)
+- [65] 30.04.24 - Спецвыпуск: Вальпургиева Ночь [🎵 YouTube Music](https://music.youtube.com/playlist?list=PLeRIoOrY1bYRCtfERAzkHby0nTeA5Gaqn) [📺 YouTube](https://youtube.com/playlist?list=PLeRIoOrY1bYRCtfERAzkHby0nTeA5Gaqn)
 
 ### Май
 - [66] 06.05.24 - Греческий Трэш [🎵 YouTube Music](https://music.youtube.com/playlist?list=PLeRIoOrY1bYQIyXzqYG5qvbYaJG7fDDyU) [📺 YouTube](https://youtube.com/playlist?list=PLeRIoOrY1bYQIyXzqYG5qvbYaJG7fDDyU)
