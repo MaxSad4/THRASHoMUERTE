@@ -190,4 +190,6 @@ THRASH o MUERTE - это радиопрограмма, посвященная э
 - [114] 20.03.25 - Cпецвыпуск, посвященный Дню Св. Патрика [🎵 YouTube Music](https://music.youtube.com/playlist?list=PLeRIoOrY1bYTEaTn7XTkjsW2qtg_wkSOQ) [📺 YouTube](https://youtube.com/playlist?list=PLeRIoOrY1bYTEaTn7XTkjsW2qtg_wkSOQ)
 - [115] 27.03.25 - Обзор Китайской ТРЭШ сцены [🎵 YouTube Music](https://music.youtube.com/playlist?list=PLeRIoOrY1bYSfWF0eSRZK7OWTyWa6owho) [📺 YouTube](https://youtube.com/playlist?list=PLeRIoOrY1bYSfWF0eSRZK7OWTyWa6owho)
 - [116] 31.03.25 - Киношокер-6. ЛИКИ СМЕРТИ (TRACES OF DEATH) [🎵 YouTube Music](https://music.youtube.com/playlist?list=PLeRIoOrY1bYS0WoMSMhXKO8mk24Iyvq-M) [📺 YouTube](https://youtube.com/playlist?list=PLeRIoOrY1bYS0WoMSMhXKO8mk24Iyvq-M)
+
+### Апрель
 - [117] 02.04.25 - Обзор Индийской экстремальной метал-сцены [🎵 YouTube Music](https://music.youtube.com/playlist?list=PLeRIoOrY1bYQssE-hdxJE2lB9hnfdfYzN) [📺 YouTube](https://youtube.com/playlist?list=PLeRIoOrY1bYQssE-hdxJE2lB9hnfdfYzN)
