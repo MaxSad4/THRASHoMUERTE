@@ -193,3 +193,10 @@ THRASH o MUERTE - это радиопрограмма, посвященная э
 
 ### Апрель
 - [117] 02.04.25 - Обзор Индийской экстремальной метал-сцены [🎵 YouTube Music](https://music.youtube.com/playlist?list=PLeRIoOrY1bYQssE-hdxJE2lB9hnfdfYzN) [📺 YouTube](https://youtube.com/playlist?list=PLeRIoOrY1bYQssE-hdxJE2lB9hnfdfYzN)
+- [118] 07.04.25 YOUNG BLOOD-4 Мировой обзор ТРЭШ/СПИД [🎵 YouTube Music](https://music.youtube.com/playlist?list=PLeRIoOrY1bYRVapfyanYqY6f1c-23mFLr) [📺 YouTube](https://youtube.com/playlist?list=PLeRIoOrY1bYRVapfyanYqY6f1c-23mFLr)
+- [119] 10.04.25 🤟🏻💀 Исландские Викинги - ПЭГАН, БЛЭК, ПАУЭР [🎵 YouTube Music](https://music.youtube.com/playlist?list=PLeRIoOrY1bYTqixjuHBv9HqeweZOZs5sM) [📺 YouTube](https://youtube.com/playlist?list=PLeRIoOrY1bYTqixjuHBv9HqeweZOZs5sM)
+- [120] 14.04.25 🤟🏻💀 COSMIC SAILORS СПЕЦОБЗОР -- ДЕНЬ КОСМОНАВТИКИ [🎵 YouTube Music](https://music.youtube.com/playlist?list=PLeRIoOrY1bYSwYIcdkkZEO5-RT8UN1Y_4) [📺 YouTube](https://youtube.com/playlist?list=PLeRIoOrY1bYSwYIcdkkZEO5-RT8UN1Y_4)
+
+
+
+
