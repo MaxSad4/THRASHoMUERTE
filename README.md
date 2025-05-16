@@ -196,7 +196,7 @@ THRASH o MUERTE - это радиопрограмма, посвященная э
 - [118] 07.04.25 YOUNG BLOOD-4 Мировой обзор ТРЭШ/СПИД [🎵 YouTube Music](https://music.youtube.com/playlist?list=PLeRIoOrY1bYRVapfyanYqY6f1c-23mFLr) [📺 YouTube](https://youtube.com/playlist?list=PLeRIoOrY1bYRVapfyanYqY6f1c-23mFLr)
 - [119] 10.04.25 🤟🏻💀 Исландские Викинги - ПЭГАН, БЛЭК, ПАУЭР [🎵 YouTube Music](https://music.youtube.com/playlist?list=PLeRIoOrY1bYTqixjuHBv9HqeweZOZs5sM) [📺 YouTube](https://youtube.com/playlist?list=PLeRIoOrY1bYTqixjuHBv9HqeweZOZs5sM)
 - [120] 14.04.25 🤟🏻💀 COSMIC SAILORS СПЕЦОБЗОР -- ДЕНЬ КОСМОНАВТИКИ [🎵 YouTube Music](https://music.youtube.com/playlist?list=PLeRIoOrY1bYSwYIcdkkZEO5-RT8UN1Y_4) [📺 YouTube](https://youtube.com/playlist?list=PLeRIoOrY1bYSwYIcdkkZEO5-RT8UN1Y_4)
-
-
-
+- [121] 24.04.25 Cпецвыпуск 🤟🏻💀 -- Экстремальные музыканты , переступившие закон и  получившие тюремные сроки [🎵 YouTube Music](https://music.youtube.com/playlist?list=PLeRIoOrY1bYQOmitlgdkcbs2wC2f4yT2A) [📺 YouTube](https://youtube.com/playlist?list=PLeRIoOrY1bYQOmitlgdkcbs2wC2f4yT2A)
+- [122] 30.04.25 🤟🏻💀 -- ПРАЗДНИЧНАЯ ПРОГРАММА, посвященная дню Св. Вальпургии! [🎵 YouTube Music](https://music.youtube.com/playlist?list=PLeRIoOrY1bYT6XZoaihffOCLuN1CbbC9w) [📺 YouTube](https://youtube.com/playlist?list=PLeRIoOrY1bYT6XZoaihffOCLuN1CbbC9w)
+- [123] 15.05.25 🤟🏻💀 -- ИСТОРИЯ СТИЛЯ. Обзор направления GOAT METAL [🎵 YouTube Music](https://music.youtube.com/playlist?list=PLeRIoOrY1bYSNaf_8AObf7lGYt1V4fScu) [📺 YouTube](https://youtube.com/playlist?list=PLeRIoOrY1bYSNaf_8AObf7lGYt1V4fScu)
 
