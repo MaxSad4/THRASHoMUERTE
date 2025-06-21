@@ -198,4 +198,12 @@ THRASH o MUERTE - это радиопрограмма, посвященная э
 - [120] 14.04.25 - 🤟🏻💀 COSMIC SAILORS СПЕЦОБЗОР -- ДЕНЬ КОСМОНАВТИКИ [🎵 YouTube Music](https://music.youtube.com/playlist?list=PLeRIoOrY1bYSwYIcdkkZEO5-RT8UN1Y_4) [📺 YouTube](https://youtube.com/playlist?list=PLeRIoOrY1bYSwYIcdkkZEO5-RT8UN1Y_4)
 - [121] 24.04.25 - Cпецвыпуск 🤟🏻💀 -- Экстремальные музыканты, переступившие закон и получившие тюремные сроки [🎵 YouTube Music](https://music.youtube.com/playlist?list=PLeRIoOrY1bYQOmitlgdkcbs2wC2f4yT2A) [📺 YouTube](https://youtube.com/playlist?list=PLeRIoOrY1bYQOmitlgdkcbs2wC2f4yT2A)
 - [122] 30.04.25 - 🤟🏻💀 -- ПРАЗДНИЧНАЯ ПРОГРАММА, посвященная дню Св. Вальпургии! [🎵 YouTube Music](https://music.youtube.com/playlist?list=PLeRIoOrY1bYT6XZoaihffOCLuN1CbbC9w) [📺 YouTube](https://youtube.com/playlist?list=PLeRIoOrY1bYT6XZoaihffOCLuN1CbbC9w)
+
+
+### Май
 - [123] 15.05.25 - 🤟🏻💀 -- ИСТОРИЯ СТИЛЯ. Обзор направления GOAT METAL [🎵 YouTube Music](https://music.youtube.com/playlist?list=PLeRIoOrY1bYSNaf_8AObf7lGYt1V4fScu) [📺 YouTube](https://youtube.com/playlist?list=PLeRIoOrY1bYSNaf_8AObf7lGYt1V4fScu)
+- [124] 27.05.25 - 🤟🏻💀 Блок Славянского ПЭГАН МЕТАЛА. Часть 1. Cцена СЛОВАКИИ [🎵 YouTube Music](https://music.youtube.com/playlist?list=PLeRIoOrY1bYS5zaGnHEDt10D8lj2UeOuK) [📺 YouTube](https://youtube.com/playlist?list=PLeRIoOrY1bYS5zaGnHEDt10D8lj2UeOuK)
+- [125] 02.06.25 - 🤟🏻💀 Блок Славянского ПЭГАН МЕТАЛА. Часть 2. Cцена ПОЛЬШИ [🎵 YouTube Music](https://music.youtube.com/playlist?list=PLeRIoOrY1bYSFxgU9daAV_R1Jro7xgj5d) [📺 YouTube](https://youtube.com/playlist?list=PLeRIoOrY1bYSFxgU9daAV_R1Jro7xgj5d)
+
+### Июнь
+- [126] 09.06.25 - 🤟🏻💀 Блок Славянского ПЭГАН МЕТАЛА. Часть 3. Хорватский Пэган/ Фолк/ Блэк [🎵 YouTube Music](https://music.youtube.com/playlist?list=PLeRIoOrY1bYTjjmd-164Jj8kqNfk75-mF) [📺 YouTube](https://youtube.com/playlist?list=PLeRIoOrY1bYTjjmd-164Jj8kqNfk75-mF)
