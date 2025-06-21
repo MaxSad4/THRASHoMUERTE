@@ -203,7 +203,7 @@ THRASH o MUERTE - это радиопрограмма, посвященная э
 ### Май
 - [123] 15.05.25 - 🤟🏻💀 -- ИСТОРИЯ СТИЛЯ. Обзор направления GOAT METAL [🎵 YouTube Music](https://music.youtube.com/playlist?list=PLeRIoOrY1bYSNaf_8AObf7lGYt1V4fScu) [📺 YouTube](https://youtube.com/playlist?list=PLeRIoOrY1bYSNaf_8AObf7lGYt1V4fScu)
 - [124] 27.05.25 - 🤟🏻💀 Блок Славянского ПЭГАН МЕТАЛА. Часть 1. Cцена СЛОВАКИИ [🎵 YouTube Music](https://music.youtube.com/playlist?list=PLeRIoOrY1bYS5zaGnHEDt10D8lj2UeOuK) [📺 YouTube](https://youtube.com/playlist?list=PLeRIoOrY1bYS5zaGnHEDt10D8lj2UeOuK)
-- [125] 02.06.25 - 🤟🏻💀 Блок Славянского ПЭГАН МЕТАЛА. Часть 2. Cцена ПОЛЬШИ [🎵 YouTube Music](https://music.youtube.com/playlist?list=PLeRIoOrY1bYSFxgU9daAV_R1Jro7xgj5d) [📺 YouTube](https://youtube.com/playlist?list=PLeRIoOrY1bYSFxgU9daAV_R1Jro7xgj5d)
 
 ### Июнь
+- [125] 02.06.25 - 🤟🏻💀 Блок Славянского ПЭГАН МЕТАЛА. Часть 2. Cцена ПОЛЬШИ [🎵 YouTube Music](https://music.youtube.com/playlist?list=PLeRIoOrY1bYSFxgU9daAV_R1Jro7xgj5d) [📺 YouTube](https://youtube.com/playlist?list=PLeRIoOrY1bYSFxgU9daAV_R1Jro7xgj5d)
 - [126] 09.06.25 - 🤟🏻💀 Блок Славянского ПЭГАН МЕТАЛА. Часть 3. Хорватский Пэган/ Фолк/ Блэк [🎵 YouTube Music](https://music.youtube.com/playlist?list=PLeRIoOrY1bYTjjmd-164Jj8kqNfk75-mF) [📺 YouTube](https://youtube.com/playlist?list=PLeRIoOrY1bYTjjmd-164Jj8kqNfk75-mF)
