@@ -195,13 +195,13 @@ THRASH o MUERTE - это радиопрограмма, посвященная э
 - [117] 02.04.25 - Обзор Индийской экстремальной метал-сцены [🎵 YouTube Music](https://music.youtube.com/playlist?list=PLeRIoOrY1bYQssE-hdxJE2lB9hnfdfYzN) [📺 YouTube](https://youtube.com/playlist?list=PLeRIoOrY1bYQssE-hdxJE2lB9hnfdfYzN)
 - [118] 07.04.25 - YOUNG BLOOD-4 Мировой обзор ТРЭШ/СПИД [🎵 YouTube Music](https://music.youtube.com/playlist?list=PLeRIoOrY1bYRVapfyanYqY6f1c-23mFLr) [📺 YouTube](https://youtube.com/playlist?list=PLeRIoOrY1bYRVapfyanYqY6f1c-23mFLr)
 - [119] 10.04.25 - 🤟🏻💀 Исландские Викинги - ПЭГАН, БЛЭК, ПАУЭР [🎵 YouTube Music](https://music.youtube.com/playlist?list=PLeRIoOrY1bYTqixjuHBv9HqeweZOZs5sM) [📺 YouTube](https://youtube.com/playlist?list=PLeRIoOrY1bYTqixjuHBv9HqeweZOZs5sM)
-- [120] 14.04.25 - 🤟🏻💀 COSMIC SAILORS СПЕЦОБЗОР -- ДЕНЬ КОСМОНАВТИКИ [🎵 YouTube Music](https://music.youtube.com/playlist?list=PLeRIoOrY1bYSwYIcdkkZEO5-RT8UN1Y_4) [📺 YouTube](https://youtube.com/playlist?list=PLeRIoOrY1bYSwYIcdkkZEO5-RT8UN1Y_4)
+- [120] 14.04.25 - 🤟🏻💀 COSMIC SAILORS СПЕЦОБЗОР - ДЕНЬ КОСМОНАВТИКИ [🎵 YouTube Music](https://music.youtube.com/playlist?list=PLeRIoOrY1bYSwYIcdkkZEO5-RT8UN1Y_4) [📺 YouTube](https://youtube.com/playlist?list=PLeRIoOrY1bYSwYIcdkkZEO5-RT8UN1Y_4)
 - [121] 24.04.25 - Cпецвыпуск 🤟🏻💀 -- Экстремальные музыканты, переступившие закон и получившие тюремные сроки [🎵 YouTube Music](https://music.youtube.com/playlist?list=PLeRIoOrY1bYQOmitlgdkcbs2wC2f4yT2A) [📺 YouTube](https://youtube.com/playlist?list=PLeRIoOrY1bYQOmitlgdkcbs2wC2f4yT2A)
-- [122] 30.04.25 - 🤟🏻💀 -- ПРАЗДНИЧНАЯ ПРОГРАММА, посвященная дню Св. Вальпургии! [🎵 YouTube Music](https://music.youtube.com/playlist?list=PLeRIoOrY1bYT6XZoaihffOCLuN1CbbC9w) [📺 YouTube](https://youtube.com/playlist?list=PLeRIoOrY1bYT6XZoaihffOCLuN1CbbC9w)
+- [122] 30.04.25 - 🤟🏻💀 ПРАЗДНИЧНАЯ ПРОГРАММА, посвященная дню Св. Вальпургии! [🎵 YouTube Music](https://music.youtube.com/playlist?list=PLeRIoOrY1bYT6XZoaihffOCLuN1CbbC9w) [📺 YouTube](https://youtube.com/playlist?list=PLeRIoOrY1bYT6XZoaihffOCLuN1CbbC9w)
 
 
 ### Май
-- [123] 15.05.25 - 🤟🏻💀 -- ИСТОРИЯ СТИЛЯ. Обзор направления GOAT METAL [🎵 YouTube Music](https://music.youtube.com/playlist?list=PLeRIoOrY1bYSNaf_8AObf7lGYt1V4fScu) [📺 YouTube](https://youtube.com/playlist?list=PLeRIoOrY1bYSNaf_8AObf7lGYt1V4fScu)
+- [123] 15.05.25 - 🤟🏻💀 ИСТОРИЯ СТИЛЯ. Обзор направления GOAT METAL [🎵 YouTube Music](https://music.youtube.com/playlist?list=PLeRIoOrY1bYSNaf_8AObf7lGYt1V4fScu) [📺 YouTube](https://youtube.com/playlist?list=PLeRIoOrY1bYSNaf_8AObf7lGYt1V4fScu)
 - [124] 27.05.25 - 🤟🏻💀 Блок Славянского ПЭГАН МЕТАЛА. Часть 1. Cцена СЛОВАКИИ [🎵 YouTube Music](https://music.youtube.com/playlist?list=PLeRIoOrY1bYS5zaGnHEDt10D8lj2UeOuK) [📺 YouTube](https://youtube.com/playlist?list=PLeRIoOrY1bYS5zaGnHEDt10D8lj2UeOuK)
 
 ### Июнь
@@ -212,5 +212,5 @@ THRASH o MUERTE - это радиопрограмма, посвященная э
 - [129] 30.06.25 - 🤟🏻💀 СПЕЦВЫПУСК. Кип ит Тру-6. Турецкий Трэш/Хэви Метал [🎵 YouTube Music](https://music.youtube.com/playlist?list=PLeRIoOrY1bYRxDRaOQ5BILj6rCRc7i6wz) [📺 YouTube](https://youtube.com/playlist?list=PLeRIoOrY1bYRxDRaOQ5BILj6rCRc7i6wz)
 
 ### Июль
-- [130] 10.07.25 - 🤟🏻💀 -- Блок Славянского ПЭГАН МЕТАЛА. Часть 6. Чешский Пэган/ Фолк/ Блэк [🎵 YouTube Music](https://music.youtube.com/playlist?list=PLeRIoOrY1bYS1iSNxk6XrdmRP5VLSO5oO) [📺 YouTube](https://youtube.com/playlist?list=PLeRIoOrY1bYS1iSNxk6XrdmRP5VLSO5oO)
-- [131] 23.07.25 - 🤟🏻💀 -- COVERED. Трибьют ОЗЗИ ОСБОРНУ (R.I.P.) [🎵 YouTube Music](https://music.youtube.com/playlist?list=PLeRIoOrY1bYRFsa5wTY3mwdoGfsGgBdkJ) [📺 YouTube](https://youtube.com/playlist?list=PLeRIoOrY1bYRFsa5wTY3mwdoGfsGgBdkJ)
+- [130] 10.07.25 - 🤟🏻💀 Блок Славянского ПЭГАН МЕТАЛА. Часть 6. Чешский Пэган/ Фолк/ Блэк [🎵 YouTube Music](https://music.youtube.com/playlist?list=PLeRIoOrY1bYS1iSNxk6XrdmRP5VLSO5oO) [📺 YouTube](https://youtube.com/playlist?list=PLeRIoOrY1bYS1iSNxk6XrdmRP5VLSO5oO)
+- [131] 23.07.25 - 🤟🏻💀 COVERED. Трибьют ОЗЗИ ОСБОРНУ (R.I.P.) [🎵 YouTube Music](https://music.youtube.com/playlist?list=PLeRIoOrY1bYRFsa5wTY3mwdoGfsGgBdkJ) [📺 YouTube](https://youtube.com/playlist?list=PLeRIoOrY1bYRFsa5wTY3mwdoGfsGgBdkJ)
