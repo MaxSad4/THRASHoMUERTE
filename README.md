@@ -109,12 +109,12 @@ THRASH o MUERTE - это радиопрограмма, посвященная э
 - [57] 28.03.24 - Тотальный обзор. Блок-3: Гондурас. Блэк
 
 ### Апрель
-- [58] 01.04.24 - Спецвыпуск: 1-е Апреля
-- [59] 08.04.24 - История Стиля. Блок-1: Дум Метал
-- [60] 11.04.24 - История Стиля. Блок-1: Дум Метал-2
-- [61] 15.04.24 - История Стиля. Блок-1: Дум Метал-3. Сборники
-- [62] 18.04.24 - История Стиля. Блок-2: Глэм
-- [63] 22.04.24 - История Стиля. Блок-2: Глэм-2
+- [58] 01.04.2024 - 🤟🏻💀 -- СПЕЦВЫПУСК. 1 АПРЕЛЯ - Пародийные и стебные группы [🎵 YouTube Music](https://music.youtube.com/playlist?list=PLeRIoOrY1bYQzlHuy6a_PeO_22P_3qe1I) [📺 YouTube](https://youtube.com/playlist?list=PLeRIoOrY1bYQzlHuy6a_PeO_22P_3qe1I)
+- [59] 08.04.2024 - 🤟🏻💀 -- DOOM METAL. Часть 1. Первая волна дум-метала [🎵 YouTube Music](https://music.youtube.com/playlist?list=PLeRIoOrY1bYTdIXEjiJnhMvr-6Jqnk-SL) [📺 YouTube](https://youtube.com/playlist?list=PLeRIoOrY1bYTdIXEjiJnhMvr-6Jqnk-SL)
+- [60] 11.04.2024 - 🤟🏻💀 -- DOOM METAL. Часть 2. Фьюнерал дум - Забытые герои [🎵 YouTube Music](https://music.youtube.com/playlist?list=PLeRIoOrY1bYTatAvRbkzDvQa8ow5VTa2j) [📺 YouTube](https://youtube.com/playlist?list=PLeRIoOrY1bYTatAvRbkzDvQa8ow5VTa2j)
+- [61] 15.04.2024 - 🤟🏻💀 -- DOOM METAL. Часть 3. Популярные в Подмосковье 93-97 [🎵 YouTube Music](https://music.youtube.com/playlist?list=PLeRIoOrY1bYRnVdRwctPQG67C4u1n2gDO) [📺 YouTube](https://youtube.com/playlist?list=PLeRIoOrY1bYRnVdRwctPQG67C4u1n2gDO)
+- [62] 18.04.2024 - 🤟🏻💀 -- История ГЛЭМ. Часть 1. Зарождение и становление [🎵 YouTube Music](https://music.youtube.com/playlist?list=PLeRIoOrY1bYSOGoR4yYMDqAGYgQSf0l0r) [📺 YouTube](https://youtube.com/playlist?list=PLeRIoOrY1bYSOGoR4yYMDqAGYgQSf0l0r)
+- [63] 22.04.2024 - 🤟🏻💀 -- История ГЛЭМ. Часть 2. Расцвет [🎵 YouTube Music](https://music.youtube.com/playlist?list=PLeRIoOrY1bYRbwsFopXv0Pc6dFeS5dxTW) [📺 YouTube](https://youtube.com/playlist?list=PLeRIoOrY1bYRbwsFopXv0Pc6dFeS5dxTW)
 - [64] 25.04.24 - История Стиля. Блок-2: Глэм-3 [🎵 YouTube Music](https://music.youtube.com/playlist?list=PLeRIoOrY1bYQpBBLpd58y3_JdHKvha6b1) [📺 YouTube](https://youtube.com/playlist?list=PLeRIoOrY1bYQpBBLpd58y3_JdHKvha6b1)
 - [65] 30.04.24 - Спецвыпуск: Вальпургиева Ночь [🎵 YouTube Music](https://music.youtube.com/playlist?list=PLeRIoOrY1bYRCtfERAzkHby0nTeA5Gaqn) [📺 YouTube](https://youtube.com/playlist?list=PLeRIoOrY1bYRCtfERAzkHby0nTeA5Gaqn)
 
