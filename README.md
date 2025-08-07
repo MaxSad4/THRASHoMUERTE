@@ -104,7 +104,7 @@ THRASH o MUERTE - это радиопрограмма, посвященная э
 - [52] 11.03.24 - YOUNG BLOOD-3. Германия и Скандинавия
 - [53] 14.03.24 - Демономания-6
 - [54] 18.03.24 - Тотальный обзор. Блок-3: Гондурас. Хэви
-- [55] 21.03.2024 - 🤟🏻💀 -- Метал Гондураса. Часть 2. Трэш метал [🎵 YouTube Music](https://music.youtube.com/playlist?list=PLeRIoOrY1bYRs_DpPmBRrR2D5yq8wJ53c) [📺 YouTube](https://youtube.com/playlist?list=PLeRIoOrY1bYRs_DpPmBRrR2D5yq8wJ53c)
+- [55] 21.03.2024 - 🤟🏻💀 -- Метал Гондураса. Часть 2. Трэш метал
 - [56] 25.03.2024 - 🤟🏻💀 -- Метал Гондураса. Часть 3. Дет метал [🎵 YouTube Music](https://music.youtube.com/playlist?list=PLeRIoOrY1bYR_elgtgQ8-7RSbTCInGu_4) [📺 YouTube](https://youtube.com/playlist?list=PLeRIoOrY1bYR_elgtgQ8-7RSbTCInGu_4)
 - [57] 28.03.2024 - 🤟🏻💀 -- Метал Гондураса. Часть 4. Блэк метал [🎵 YouTube Music](https://music.youtube.com/playlist?list=PLeRIoOrY1bYRACyyvtUlRWyu7P47rHuvL) [📺 YouTube](https://youtube.com/playlist?list=PLeRIoOrY1bYRACyyvtUlRWyu7P47rHuvL)
 
