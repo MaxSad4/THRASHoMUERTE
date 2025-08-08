@@ -98,13 +98,13 @@ THRASH o MUERTE - это радиопрограмма, посвященная э
 - [48] 29.02.24 - Кип ит Тру-2
 
 ### Март
-- [49] 04.03.24 - Киношокер-2: Фредди Крюгер
-- [50] 07.03.24 - Демономания-5
-- [51] 08.03.24 - Спецпрограмма: Львицы Рока
-- [52] 11.03.24 - YOUNG BLOOD-3. Германия и Скандинавия
-- [53] 14.03.24 - Демономания-6
-- [54] 18.03.24 - Тотальный обзор. Блок-3: Гондурас. Хэви
-- [55] 21.03.2024 - 🤟🏻💀 -- Метал Гондураса. Часть 2. Трэш метал
+- [49] 04.03.2024 - 🤟🏻💀 -- КИНОШОКЕР 🎥💥 Выпуск 2 - "Кошмар на улице Вязов" в творчестве рок-групп [🎵 YouTube Music](https://music.youtube.com/playlist?list=PLeRIoOrY1bYRANal1ACxfiJVib8K4Lp9q) [📺 YouTube](https://youtube.com/playlist?list=PLeRIoOrY1bYRANal1ACxfiJVib8K4Lp9q)
+- [50] 07.03.2024 - 🤟🏻💀 -- ДЕМОНОМАНИЯ 😈 Часть 5 - Восхваления демонов [🎵 YouTube Music](https://music.youtube.com/playlist?list=PLeRIoOrY1bYS3-QVHIrbLoCEFzwa9LJjV) [📺 YouTube](https://youtube.com/playlist?list=PLeRIoOrY1bYS3-QVHIrbLoCEFzwa9LJjV)
+- [51] 08.03.2024 - 🤟🏻💀 -- ЛЬВИЦЫ РОКА 🦁👩🏻‍🦰🤘🏻 - Праздничный выпуск к Международному Женскому Дню [🎵 YouTube Music](https://music.youtube.com/playlist?list=PLeRIoOrY1bYQBRkNveQvlsOd7bJsn-EG6) [📺 YouTube](https://youtube.com/playlist?list=PLeRIoOrY1bYQBRkNveQvlsOd7bJsn-EG6)
+- [52] 11.03.2024 - 🤟💀 -- YOUNG BLOOD 🩸🤘 - Новинки POWER METAL Германии и Скандинавии [🎵 YouTube Music](https://music.youtube.com/playlist?list=PLeRIoOrY1bYQoYv-FQMaSDNE8QB1U283N) [📺 YouTube](https://youtube.com/playlist?list=PLeRIoOrY1bYQoYv-FQMaSDNE8QB1U283N)
+- [53] 14.03.2024 - 🤟🏻💀 -- ДЕМОНОМАНИЯ. Часть 6. Последняя - Восхваления демонов [🎵 YouTube Music](https://music.youtube.com/playlist?list=PLeRIoOrY1bYSqxFWXctR03ybGV_f8peKI) [📺 YouTube](https://youtube.com/playlist?list=PLeRIoOrY1bYSqxFWXctR03ybGV_f8peKI)
+- [54] 18.03.2024 - 🤟🏻💀 -- Метал Гондураса. Часть 1. Хэви метал [🎵 YouTube Music](https://music.youtube.com/playlist?list=PLeRIoOrY1bYSneXPRHD7F--QR4Jial5ZK) [📺 YouTube](https://youtube.com/playlist?list=PLeRIoOrY1bYSneXPRHD7F--QR4Jial5ZK)
+- [55] 21.03.2024 - 🤟🏻💀 -- Метал Гондураса. Часть 2. Трэш метал [🎵 YouTube Music](https://music.youtube.com/playlist?list=PLeRIoOrY1bYRXENvg8a1KUfnUPe74PENx) [📺 YouTube](https://youtube.com/playlist?list=PLeRIoOrY1bYRXENvg8a1KUfnUPe74PENx)
 - [56] 25.03.2024 - 🤟🏻💀 -- Метал Гондураса. Часть 3. Дет метал [🎵 YouTube Music](https://music.youtube.com/playlist?list=PLeRIoOrY1bYR_elgtgQ8-7RSbTCInGu_4) [📺 YouTube](https://youtube.com/playlist?list=PLeRIoOrY1bYR_elgtgQ8-7RSbTCInGu_4)
 - [57] 28.03.2024 - 🤟🏻💀 -- Метал Гондураса. Часть 4. Блэк метал [🎵 YouTube Music](https://music.youtube.com/playlist?list=PLeRIoOrY1bYRACyyvtUlRWyu7P47rHuvL) [📺 YouTube](https://youtube.com/playlist?list=PLeRIoOrY1bYRACyyvtUlRWyu7P47rHuvL)
 
