@@ -88,14 +88,14 @@ THRASH o MUERTE - это радиопрограмма, посвященная э
 - [40] 29.01.24 - Кавер: Моторхэд (часть 1)
 
 ### Февраль
-- [41] 05.02.24 - Кавер: Моторхэд (часть 2)
-- [42] 08.02.24 - Демономания-1
-- [43] 12.02.24 - Демономания-2
-- [44] 15.02.24 - Демономания-3
-- [45] 19.02.24 - Кип ит Тру-1
-- [46] 22.02.24 - Киношокер-1: Зловещие Мертвецы
-- [47] 26.02.24 - Демономания-4
-- [48] 29.02.24 - Кип ит Тру-2
+- [41] 05.02.2024 - 🤟🏻💀 -- COVERED - Каверы на песни Мотора, часть 2 [🎵 YouTube Music](https://music.youtube.com/playlist?list=PLeRIoOrY1bYRMM5sovu2Z4C5F1SAasJqK) [📺 YouTube](https://youtube.com/playlist?list=PLeRIoOrY1bYRMM5sovu2Z4C5F1SAasJqK)
+- [42] 08.02.2024 - 🤟🏻💀 -- ДЕМОНОМАНИЯ 😈 Часть 1 - Восхваления демонов [🎵 YouTube Music](https://music.youtube.com/playlist?list=PLeRIoOrY1bYRvr74t8LFb0yJXZkzFHm74) [📺 YouTube](https://youtube.com/playlist?list=PLeRIoOrY1bYRvr74t8LFb0yJXZkzFHm74)
+- [43] 12.02.2024 - 🤟🏻💀 -- ДЕМОНОМАНИЯ 😈 Часть 2 - Восхваления демонов [🎵 YouTube Music](https://music.youtube.com/playlist?list=PLeRIoOrY1bYRiz52D27-GdMe-x0xxpG_o) [📺 YouTube](https://youtube.com/playlist?list=PLeRIoOrY1bYRiz52D27-GdMe-x0xxpG_o)
+- [44] 15.02.2024 - 🤟🏻💀 -- ДЕМОНОМАНИЯ 😈 Часть 3 - Восхваления демонов [🎵 YouTube Music](https://music.youtube.com/playlist?list=PLeRIoOrY1bYT35Q5IFUzC-CL5FkmQJ5nY) [📺 YouTube](https://youtube.com/playlist?list=PLeRIoOrY1bYT35Q5IFUzC-CL5FkmQJ5nY)
+- [45] 19.02.2024 - 🤟💀 -- Keep it true! 🤘✊ Часть первая - Трушный метал [🎵 YouTube Music](https://music.youtube.com/playlist?list=PLeRIoOrY1bYSrH1myukXrJxnkF3RJxc4S) [📺 YouTube](https://youtube.com/playlist?list=PLeRIoOrY1bYSrH1myukXrJxnkF3RJxc4S)
+- [46] 22.02.2024 - 🤟💀 -- КИНОШОКЕР 🎥💥 Выпуск 1 - "Зловещие мертвецы" в творчестве метал групп [🎵 YouTube Music](https://music.youtube.com/playlist?list=PLeRIoOrY1bYQ8tKSRgOlC9dUMnxgxif5q) [📺 YouTube](https://youtube.com/playlist?list=PLeRIoOrY1bYQ8tKSRgOlC9dUMnxgxif5q)
+- [47] 26.02.2024 - 🤟🏻💀 -- ДЕМОНОМАНИЯ 😈 Часть 4 - Восхваления демонов [🎵 YouTube Music](https://music.youtube.com/playlist?list=PLeRIoOrY1bYRuCBeffNCp2JcozN5EovPs) [📺 YouTube](https://youtube.com/playlist?list=PLeRIoOrY1bYRuCBeffNCp2JcozN5EovPs)
+- [48] 29.02.2024 - 🤟💀 -- Keep it true! 🤘✊ Часть вторая - Трушный хэви-метал [🎵 YouTube Music](https://music.youtube.com/playlist?list=PLeRIoOrY1bYQUiYyfeF_xe2htkX6agCDj) [📺 YouTube](https://youtube.com/playlist?list=PLeRIoOrY1bYQUiYyfeF_xe2htkX6agCDj)
 
 ### Март
 - [49] 04.03.2024 - 🤟🏻💀 -- КИНОШОКЕР 🎥💥 Выпуск 2 - "Кошмар на улице Вязов" в творчестве рок-групп [🎵 YouTube Music](https://music.youtube.com/playlist?list=PLeRIoOrY1bYRANal1ACxfiJVib8K4Lp9q) [📺 YouTube](https://youtube.com/playlist?list=PLeRIoOrY1bYRANal1ACxfiJVib8K4Lp9q)
