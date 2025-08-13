@@ -72,9 +72,10 @@ THRASH o MUERTE - это радиопрограмма, посвященная э
 - [28] 14.12.23 - Тотальный обзор. Блок-1: Коста-Рика. Трэш
 - [29] 18.12.23 - Тотальный обзор. Блок-1: Коста-Рика. Блэк
 - [30] 21.12.23 - Тотальный обзор. Блок-1: Коста-Рика. Дэт
-- [31] 24.12.23 - Спецвыпуск: Рождество
-- [32] 25.12.23 - Тотальный обзор. Блок-1: Коста-Рика. Панк и Хардкор
-- [33] 28.12.23 - Британский Дэт
+- [31] 24.12.2023 - 🤟🏻💀 -- Внеочередной выпуск: Мерикристмас [🎵 YouTube Music](https://music.youtube.com/playlist?list=PLeRIoOrY1bYTBa2y20tVAnyi3ssbly4UN) [📺 YouTube](https://youtube.com/playlist?list=PLeRIoOrY1bYTBa2y20tVAnyi3ssbly4UN)
+- [32] 25.12.2023 - 🤟🏻💀 -- Коста-Рика, часть 5 (панк рок и хардкор) [🎵 YouTube Music](https://music.youtube.com/playlist?list=PLeRIoOrY1bYQYfHkGoZLBhBXdqx9g9LJ1) [📺 YouTube](https://youtube.com/playlist?list=PLeRIoOrY1bYQYfHkGoZLBhBXdqx9g9LJ1)
+- [33] 28.12.2023 - 🤟🏻💀 -- Дет метал Британии [🎵 YouTube Music](https://music.youtube.com/playlist?list=PLeRIoOrY1bYQlTRUjo4dWd-xyUrNTS8Qq) [📺 YouTube](https://youtube.com/playlist?list=PLeRIoOrY1bYQlTRUjo4dWd-xyUrNTS8Qq)
+
 
 ## 2024
 
