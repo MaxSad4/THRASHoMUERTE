@@ -57,13 +57,13 @@ THRASH o MUERTE - это радиопрограмма, посвященная э
 - [15] 02.11.23 - Олдовый Спид метал
 - [16] 06.11.23 - Южноамериканский Пэган (часть 1: Аргентина)
 - [17] 09.11.23 - Южноамериканский Пэган (часть 2: Бразилия)
-- [18] 10.11.23 - Спецвыпуск: День Рождения Колоба
-- [19] 13.11.23 - Бразильский Дет
-- [20] 16.11.23 - Мексиканский Хэви
-- [21] 20.11.23 - Ближний Восток-1: Египет
-- [22] 23.11.23 - Ближний Восток-2: Израиль
-- [23] 27.11.23 - Ближний Восток-3: Шайтан Метал
-- [24] 30.11.23 - YOUNG BLOOD-1. Трэш. Южная Европа
+- [18] 10.11.2023 - 🤟🏻💀 -- Специальный выпуск: Ди-бит, хаос, чопперы и Сатана (для Колоба) [🎵 YouTube Music](https://music.youtube.com/playlist?list=PLeRIoOrY1bYSq4_DbpYMt5rxPJn0_F334) [📺 YouTube](https://youtube.com/playlist?list=PLeRIoOrY1bYSq4_DbpYMt5rxPJn0_F334)
+- [19] 13.11.2023 - 🤟🏻💀 -- Бразильская дет метал сцена [🎵 YouTube Music](https://music.youtube.com/playlist?list=PLeRIoOrY1bYSt-TXlLqzzqmJ5oTgAjB_-) [📺 YouTube](https://youtube.com/playlist?list=PLeRIoOrY1bYSt-TXlLqzzqmJ5oTgAjB_-)
+- [20] 16.11.2023 - 🤟🏻💀 -- Классический хэви-метал Мексики [🎵 YouTube Music](https://music.youtube.com/playlist?list=PLeRIoOrY1bYQ3vqUv604Elnfiovkr7v6b) [📺 YouTube](https://youtube.com/playlist?list=PLeRIoOrY1bYQ3vqUv604Elnfiovkr7v6b)
+- [21] 20.11.2023 - 🤟🏻💀 -- Экстремальная сцена Египта [🎵 YouTube Music](https://music.youtube.com/playlist?list=PLeRIoOrY1bYR8-dRCSd348u8jc2CMZESr) [📺 YouTube](https://youtube.com/playlist?list=PLeRIoOrY1bYR8-dRCSd348u8jc2CMZESr)
+- [22] 23.11.2023 - 🤟🏻💀 -- Экстремальная сцена Израиля [🎵 YouTube Music](https://music.youtube.com/playlist?list=PLeRIoOrY1bYQsfyix9tWJx2tGgo3l9UsV) [📺 YouTube](https://youtube.com/playlist?list=PLeRIoOrY1bYQsfyix9tWJx2tGgo3l9UsV)
+- [23] 27.11.2023 - 🤟🏻💀 -- Шайтан метал: Передняя Азия и Магриб (часть 3) [🎵 YouTube Music](https://music.youtube.com/playlist?list=PLeRIoOrY1bYSaZztLweJBF67Och6VIS88) [📺 YouTube](https://youtube.com/playlist?list=PLeRIoOrY1bYSaZztLweJBF67Och6VIS88)
+- [24] 30.11.2023 - 🤟🏻💀 -- Янг Блад - 1: Южно-Европейский трэш (новая волна) [🎵 YouTube Music](https://music.youtube.com/playlist?list=PLeRIoOrY1bYSu_3IsA9dQRekKzrBBlqVO) [📺 YouTube](https://youtube.com/playlist?list=PLeRIoOrY1bYSu_3IsA9dQRekKzrBBlqVO)
 
 ### Декабрь
 - [25] 04.12.2023 - 🤟🏻💀 -- Индонезийский не экстремальный рок [🎵 YouTube Music](https://music.youtube.com/playlist?list=PLeRIoOrY1bYQxpmEkom4LZR29Z2vhiKyK) [📺 YouTube](https://youtube.com/playlist?list=PLeRIoOrY1bYQxpmEkom4LZR29Z2vhiKyK)
