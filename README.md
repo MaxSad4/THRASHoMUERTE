@@ -66,12 +66,12 @@ THRASH o MUERTE - это радиопрограмма, посвященная э
 - [24] 30.11.23 - YOUNG BLOOD-1. Трэш. Южная Европа
 
 ### Декабрь
-- [25] 04.12.23 - Индонезия. Рок
-- [26] 07.12.23 - Украинский Пэган-Блэк
-- [27] 11.12.23 - Тотальный обзор. Блок-1: Коста-Рика. Хэви
-- [28] 14.12.23 - Тотальный обзор. Блок-1: Коста-Рика. Трэш
-- [29] 18.12.23 - Тотальный обзор. Блок-1: Коста-Рика. Блэк
-- [30] 21.12.23 - Тотальный обзор. Блок-1: Коста-Рика. Дэт
+- [25] 04.12.2023 - 🤟🏻💀 -- Индонезийский не экстремальный рок [🎵 YouTube Music](https://music.youtube.com/playlist?list=PLeRIoOrY1bYQxpmEkom4LZR29Z2vhiKyK) [📺 YouTube](https://youtube.com/playlist?list=PLeRIoOrY1bYQxpmEkom4LZR29Z2vhiKyK)
+- [26] 07.12.2023 - 🤟🏻💀 -- Паган/блэк Украины [🎵 YouTube Music](https://music.youtube.com/playlist?list=PLeRIoOrY1bYS1QGzhO2FTXSxuukoG20ia) [📺 YouTube](https://youtube.com/playlist?list=PLeRIoOrY1bYS1QGzhO2FTXSxuukoG20ia)
+- [27] 11.12.2023 - 🤟🏻💀 -- Коста-Рика, часть 1 (хэви метал) [🎵 YouTube Music](https://music.youtube.com/playlist?list=PLeRIoOrY1bYQx7-FUutpmUeXgKvjKUi67) [📺 YouTube](https://youtube.com/playlist?list=PLeRIoOrY1bYQx7-FUutpmUeXgKvjKUi67)
+- [28] 14.12.2023 - 🤟🏻💀 -- Коста-Рика, часть 2 (трэш метал) [🎵 YouTube Music](https://music.youtube.com/playlist?list=PLeRIoOrY1bYSzcLhypKt_EddlUynq3tvN) [📺 YouTube](https://youtube.com/playlist?list=PLeRIoOrY1bYSzcLhypKt_EddlUynq3tvN)
+- [29] 18.12.2023 - 🤟🏻💀 -- Коста-Рика, часть 3 (блэк метал) [🎵 YouTube Music](https://music.youtube.com/playlist?list=PLeRIoOrY1bYQw8-kEuJvc7ibyGPnE66vj) [📺 YouTube](https://youtube.com/playlist?list=PLeRIoOrY1bYQw8-kEuJvc7ibyGPnE66vj)
+- [30] 21.12.2023 - 🤟🏻💀 -- Коста-Рика, часть 4 (дет метал) [🎵 YouTube Music](https://music.youtube.com/playlist?list=PLeRIoOrY1bYQhSBtL_9WCpsbLuZkDGONf) [📺 YouTube](https://youtube.com/playlist?list=PLeRIoOrY1bYQhSBtL_9WCpsbLuZkDGONf)
 - [31] 24.12.2023 - 🤟🏻💀 -- Внеочередной выпуск: Мерикристмас [🎵 YouTube Music](https://music.youtube.com/playlist?list=PLeRIoOrY1bYTBa2y20tVAnyi3ssbly4UN) [📺 YouTube](https://youtube.com/playlist?list=PLeRIoOrY1bYTBa2y20tVAnyi3ssbly4UN)
 - [32] 25.12.2023 - 🤟🏻💀 -- Коста-Рика, часть 5 (панк рок и хардкор) [🎵 YouTube Music](https://music.youtube.com/playlist?list=PLeRIoOrY1bYQYfHkGoZLBhBXdqx9g9LJ1) [📺 YouTube](https://youtube.com/playlist?list=PLeRIoOrY1bYQYfHkGoZLBhBXdqx9g9LJ1)
 - [33] 28.12.2023 - 🤟🏻💀 -- Дет метал Британии [🎵 YouTube Music](https://music.youtube.com/playlist?list=PLeRIoOrY1bYQlTRUjo4dWd-xyUrNTS8Qq) [📺 YouTube](https://youtube.com/playlist?list=PLeRIoOrY1bYQlTRUjo4dWd-xyUrNTS8Qq)
