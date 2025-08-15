@@ -53,7 +53,7 @@ THRASH o MUERTE - это радиопрограмма, посвященная э
 - [13] 30.10.2023 - 🤟🏻💀 -- Прогрессив/техно дэт. Южноевропейская сцена [🎵 YouTube Music](https://music.youtube.com/playlist?list=PLeRIoOrY1bYRCfIXhVMqL_HSTVtKL-izD) [📺 YouTube](https://youtube.com/playlist?list=PLeRIoOrY1bYRCfIXhVMqL_HSTVtKL-izD)
 - [14] 31.10.2023 - 🤟🏻💀 -- Спецвыпуск: Хэлловин [🎵 YouTube Music](https://music.youtube.com/playlist?list=PLeRIoOrY1bYSNfTBe6thKlBNSurUQzB70) [📺 YouTube](https://youtube.com/playlist?list=PLeRIoOrY1bYSNfTBe6thKlBNSurUQzB70)
 
-- ### Ноябрь
+### Ноябрь
 - [15] 02.11.2023 - 🤟🏻💀 -- Пионеры SPEED METAL [🎵 YouTube Music](https://music.youtube.com/playlist?list=PLeRIoOrY1bYRiW5JBtgXYWPKPgLrGTn2V) [📺 YouTube](https://youtube.com/playlist?list=PLeRIoOrY1bYRiW5JBtgXYWPKPgLrGTn2V)
 - [16] 06.11.2023 - 🤟🏻💀 -- Южноамериканский Пэган (часть 1: Аргентина) [🎵 YouTube Music](https://music.youtube.com/playlist?list=PLeRIoOrY1bYRm8LKMk4Jl2c_Yz4QxeMMd) [📺 YouTube](https://youtube.com/playlist?list=PLeRIoOrY1bYRm8LKMk4Jl2c_Yz4QxeMMd)
 - [17] 09.11.2023 - 🤟🏻💀 -- Южноамериканский Пэган (часть 2: Бразилия) [🎵 YouTube Music](https://music.youtube.com/playlist?list=PLeRIoOrY1bYS4jIZBBhdUzEjCdYvHCtPf) [📺 YouTube](https://youtube.com/playlist?list=PLeRIoOrY1bYS4jIZBBhdUzEjCdYvHCtPf)
