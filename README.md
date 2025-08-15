@@ -44,19 +44,19 @@ THRASH o MUERTE - это радиопрограмма, посвященная э
 - [06] 25.09.23 - Обзоры: Пэган (Словакия) / Блэк (Индонезия) / НСБМ (Финляндия) / Мозамбикский экстрим-метал
 
 ### Октябрь
-- [07] 12.10.23 - Аргентинский Трэш (часть 1)
-- [08] 14.10.23 - Хоррор Панк. Общий обзор
-- [09] 16.10.23 - Аргентинский Трэш (часть 2)
-- [10] 19.10.23 - Аргентинский Трэш (часть 3)
-- [11] 23.10.23 - Латино-американский Панк и Хардкор
-- [12] 26.10.23 - Латино-американский Пауэр Метал
-- [13] 30.10.23 - ТехноДет. Южная Европа
-- [14] 31.10.23 - Спецвыпуск: Хэлловин
+- [007] 12.10.2023 - 🤟🏻💀 -- Аргентинский Трэш (часть 1) [🎵 YouTube Music](https://music.youtube.com/playlist?list=PLeRIoOrY1bYSDj5U2SUMoNqequ8Kw5JwB) [📺 YouTube](https://youtube.com/playlist?list=PLeRIoOrY1bYSDj5U2SUMoNqequ8Kw5JwB)
+- [008] 14.10.2023 - 🤟🏻💀 -- Спецвыпуск: обзор Horror Punk [🎵 YouTube Music](https://music.youtube.com/playlist?list=PLeRIoOrY1bYQZ4WhVU5ZGfRsrhA_2Iiip) [📺 YouTube](https://youtube.com/playlist?list=PLeRIoOrY1bYQZ4WhVU5ZGfRsrhA_2Iiip)
+- [009] 16.10.2023 - 🤟🏻💀 -- Аргентинский Трэш (часть 2) [🎵 YouTube Music](https://music.youtube.com/playlist?list=PLeRIoOrY1bYRRgIa7hyXbzXGmnc7Wi7i1) [📺 YouTube](https://youtube.com/playlist?list=PLeRIoOrY1bYRRgIa7hyXbzXGmnc7Wi7i1)
+- [010] 19.10.2023 - 🤟🏻💀 -- Аргентинский Трэш (часть 3) [🎵 YouTube Music](https://music.youtube.com/playlist?list=PLeRIoOrY1bYQPiS_h81DADHJDM-vYurFe) [📺 YouTube](https://youtube.com/playlist?list=PLeRIoOrY1bYQPiS_h81DADHJDM-vYurFe)
+- [011] 23.10.2023 - 🤟🏻💀 -- Латино-американский Панк и Хардкор [🎵 YouTube Music](https://music.youtube.com/playlist?list=PLeRIoOrY1bYQyhsb_QcxZNSEbpRdB6hZm) [📺 YouTube](https://youtube.com/playlist?list=PLeRIoOrY1bYQyhsb_QcxZNSEbpRdB6hZm)
+- [012] 26.10.2023 - 🤟🏻💀 -- Латино-американский Пауэр Метал [🎵 YouTube Music](https://music.youtube.com/playlist?list=PLeRIoOrY1bYSxYl9eM6wrtjPTxoiTs0ur) [📺 YouTube](https://youtube.com/playlist?list=PLeRIoOrY1bYSxYl9eM6wrtjPTxoiTs0ur)
+- [013] 30.10.2023 - 🤟🏻💀 -- Прогрессив/техно дэт. Южноевропейская сцена [🎵 YouTube Music](https://music.youtube.com/playlist?list=PLeRIoOrY1bYRCfIXhVMqL_HSTVtKL-izD) [📺 YouTube](https://youtube.com/playlist?list=PLeRIoOrY1bYRCfIXhVMqL_HSTVtKL-izD)
+- [014] 31.10.2023 - 🤟🏻💀 -- Спецвыпуск: Хэлловин [🎵 YouTube Music](https://music.youtube.com/playlist?list=PLeRIoOrY1bYSNfTBe6thKlBNSurUQzB70) [📺 YouTube](https://youtube.com/playlist?list=PLeRIoOrY1bYSNfTBe6thKlBNSurUQzB70)
 
-### Ноябрь
-- [15] 02.11.23 - Олдовый Спид метал
-- [16] 06.11.23 - Южноамериканский Пэган (часть 1: Аргентина)
-- [17] 09.11.23 - Южноамериканский Пэган (часть 2: Бразилия)
+- ### Ноябрь
+- [015] 02.11.2023 - 🤟🏻💀 -- Пионеры SPEED METAL [🎵 YouTube Music](https://music.youtube.com/playlist?list=PLeRIoOrY1bYRiW5JBtgXYWPKPgLrGTn2V) [📺 YouTube](https://youtube.com/playlist?list=PLeRIoOrY1bYRiW5JBtgXYWPKPgLrGTn2V)
+- [016] 06.11.2023 - 🤟🏻💀 -- Южноамериканский Пэган (часть 1: Аргентина) [🎵 YouTube Music](https://music.youtube.com/playlist?list=PLeRIoOrY1bYRm8LKMk4Jl2c_Yz4QxeMMd) [📺 YouTube](https://youtube.com/playlist?list=PLeRIoOrY1bYRm8LKMk4Jl2c_Yz4QxeMMd)
+- [017] 09.11.2023 - 🤟🏻💀 -- Южноамериканский Пэган (часть 2: Бразилия) [🎵 YouTube Music](https://music.youtube.com/playlist?list=PLeRIoOrY1bYS4jIZBBhdUzEjCdYvHCtPf) [📺 YouTube](https://youtube.com/playlist?list=PLeRIoOrY1bYS4jIZBBhdUzEjCdYvHCtPf)
 - [18] 10.11.2023 - 🤟🏻💀 -- Специальный выпуск: Ди-бит, хаос, чопперы и Сатана (для Колоба) [🎵 YouTube Music](https://music.youtube.com/playlist?list=PLeRIoOrY1bYSq4_DbpYMt5rxPJn0_F334) [📺 YouTube](https://youtube.com/playlist?list=PLeRIoOrY1bYSq4_DbpYMt5rxPJn0_F334)
 - [19] 13.11.2023 - 🤟🏻💀 -- Бразильская дет метал сцена [🎵 YouTube Music](https://music.youtube.com/playlist?list=PLeRIoOrY1bYSt-TXlLqzzqmJ5oTgAjB_-) [📺 YouTube](https://youtube.com/playlist?list=PLeRIoOrY1bYSt-TXlLqzzqmJ5oTgAjB_-)
 - [20] 16.11.2023 - 🤟🏻💀 -- Классический хэви-метал Мексики [🎵 YouTube Music](https://music.youtube.com/playlist?list=PLeRIoOrY1bYQ3vqUv604Elnfiovkr7v6b) [📺 YouTube](https://youtube.com/playlist?list=PLeRIoOrY1bYQ3vqUv604Elnfiovkr7v6b)
