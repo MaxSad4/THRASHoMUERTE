@@ -223,3 +223,6 @@ THRASH o MUERTE - это радиопрограмма, посвященная э
 - [135] 11.08.25 - 🤟🏻💀 Блок Славянского ПЭГАН МЕТАЛА Часть 8. Босния и Македония [🎵 YouTube Music](https://music.youtube.com/playlist?list=PLeRIoOrY1bYQ4wH8XaFoTy5y-K01wmO41) [📺 YouTube](https://youtube.com/playlist?list=PLeRIoOrY1bYQ4wH8XaFoTy5y-K01wmO41)
 - [136] 14.08.25 - 🤟🏻💀 Блок Славянского ПЭГАН МЕТАЛА Часть 9. Украина [🎵 YouTube Music](https://music.youtube.com/playlist?list=PLeRIoOrY1bYS-YqulRTXW_J_pe_A1kv3S) [📺 YouTube](https://youtube.com/playlist?list=PLeRIoOrY1bYS-YqulRTXW_J_pe_A1kv3S)
 - [137] 22.08.25 - 🤟🏻💀 Блок Славянского ПЭГАН МЕТАЛА Часть 10. РОССИЯ !! 🌲🪵🐺🔥🇷🇺 [🎵 YouTube Music](https://music.youtube.com/playlist?list=PLeRIoOrY1bYRPupHUbJ2Pjra2TyUdYj1L) [📺 YouTube](https://youtube.com/playlist?list=PLeRIoOrY1bYRPupHUbJ2Pjra2TyUdYj1L)
+
+### Сентябрь
+- [138] 15.09.25 - 🤟🏻💀 -- ВИКИНГ/ПЭГАН МЕТАЛ 90-х !! [🎵 YouTube Music](https://music.youtube.com/playlist?list=PLeRIoOrY1bYTz4czRBkwRUbflZfzURto4) [📺 YouTube](https://youtube.com/playlist?list=PLeRIoOrY1bYTz4czRBkwRUbflZfzURto4)
