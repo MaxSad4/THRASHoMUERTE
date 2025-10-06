@@ -226,3 +226,9 @@ THRASH o MUERTE - это радиопрограмма, посвященная э
 
 ### Сентябрь
 - [138] 15.09.25 - 🤟🏻💀 -- ВИКИНГ/ПЭГАН МЕТАЛ 90-х !! [🎵 YouTube Music](https://music.youtube.com/playlist?list=PLeRIoOrY1bYTz4czRBkwRUbflZfzURto4) [📺 YouTube](https://youtube.com/playlist?list=PLeRIoOrY1bYTz4czRBkwRUbflZfzURto4)
+- [139] 18.09.25 - 🤟🏻💀 -- Verdadero metal Paraguayo 🇵🇾 !!! (Ремэйк старого пилота Парагвайского ХМР от 19.09.23г.) [🎵 YouTube Music](https://music.youtube.com/playlist?list=PLeRIoOrY1bYQzJafouW-pfTSPVCLO459m) [📺 YouTube](https://youtube.com/playlist?list=PLeRIoOrY1bYQzJafouW-pfTSPVCLO459m)
+- [140] 29.09.25 - 🤟🏻💀 -- ИСТОРИЯ СТИЛЯ 🎸📖 - ДУМ МЕТАЛ. ФЭМЕЙЛ ДУМ и БЬЮТИ энд БИСТ [🎵 YouTube Music](https://music.youtube.com/playlist?list=PLeRIoOrY1bYS3CvsH44SM_hF8yMCh4PQe) [📺 YouTube](https://youtube.com/playlist?list=PLeRIoOrY1bYS3CvsH44SM_hF8yMCh4PQe)
+
+### Октябрь
+- [141] 06.10.25 - 🤟🏻💀 -- СПЕЦПРОГРАММА ! Обзор самых крутых МАСКОТОВ 👺 🎸 (талисманов) метал групп [🎵 YouTube Music](https://music.youtube.com/playlist?list=PLeRIoOrY1bYSuwCbKIGa63KZAJ33KfKmc) [📺 YouTube](https://youtube.com/playlist?list=PLeRIoOrY1bYSuwCbKIGa63KZAJ33KfKmc)
+
