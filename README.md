@@ -222,7 +222,7 @@ THRASH o MUERTE - это радиопрограмма, посвященная э
 - [134] 06.08.25 - 🤟🏻💀 СПЕЦВЫПУСК. РЕТРО УГАР - Метал молодости по заявке Димы [🎵 YouTube Music](https://music.youtube.com/playlist?list=PLeRIoOrY1bYS_IrWQkcY9VZ3YNzMz-wMs) [📺 YouTube](https://youtube.com/playlist?list=PLeRIoOrY1bYS_IrWQkcY9VZ3YNzMz-wMs)
 - [135] 11.08.25 - 🤟🏻💀 Блок Славянского ПЭГАН МЕТАЛА Часть 8. Босния и Македония [🎵 YouTube Music](https://music.youtube.com/playlist?list=PLeRIoOrY1bYQ4wH8XaFoTy5y-K01wmO41) [📺 YouTube](https://youtube.com/playlist?list=PLeRIoOrY1bYQ4wH8XaFoTy5y-K01wmO41)
 - [136] 14.08.25 - 🤟🏻💀 Блок Славянского ПЭГАН МЕТАЛА Часть 9. Украина [🎵 YouTube Music](https://music.youtube.com/playlist?list=PLeRIoOrY1bYS-YqulRTXW_J_pe_A1kv3S) [📺 YouTube](https://youtube.com/playlist?list=PLeRIoOrY1bYS-YqulRTXW_J_pe_A1kv3S)
-- [137] 22.08.25 - 🤟🏻💀 Блок Славянского ПЭГАН МЕТАЛА Часть 10. РОССИЯ !! 🌲🪵🐺🔥🇷🇺 [🎵 YouTube Music](https://music.youtube.com/playlist?list=PLeRIoOrY1bYRPupHUbJ2Pjra2TyUdYj1L) [📺 YouTube](https://youtube.com/playlist?list=PLeRIoOrY1bYRPupHUbJ2Pjra2TyUdYj1L)
+- [137] 22.08.25 - 🤟🏻💀 Блок Славянского ПЭГАН МЕТАЛА Часть 10. РОССИЯ !! 🌲🐺🔥 [🎵 YouTube Music](https://music.youtube.com/playlist?list=PLeRIoOrY1bYRPupHUbJ2Pjra2TyUdYj1L) [📺 YouTube](https://youtube.com/playlist?list=PLeRIoOrY1bYRPupHUbJ2Pjra2TyUdYj1L)
 
 ### Сентябрь
 - [138] 15.09.25 - 🤟🏻💀 -- ВИКИНГ/ПЭГАН МЕТАЛ 90-х !! [🎵 YouTube Music](https://music.youtube.com/playlist?list=PLeRIoOrY1bYTz4czRBkwRUbflZfzURto4) [📺 YouTube](https://youtube.com/playlist?list=PLeRIoOrY1bYTz4czRBkwRUbflZfzURto4)
@@ -231,4 +231,7 @@ THRASH o MUERTE - это радиопрограмма, посвященная э
 
 ### Октябрь
 - [141] 06.10.25 - 🤟🏻💀 -- СПЕЦПРОГРАММА ! Обзор самых крутых МАСКОТОВ 👺 🎸 (талисманов) метал групп [🎵 YouTube Music](https://music.youtube.com/playlist?list=PLeRIoOrY1bYSuwCbKIGa63KZAJ33KfKmc) [📺 YouTube](https://youtube.com/playlist?list=PLeRIoOrY1bYSuwCbKIGa63KZAJ33KfKmc)
+- [142] 13.10.25 - 🤟🏻💀 -- ЯНГ БЛАД 🩸🎸 - 6-й блок цикла: Хард, АОР, Глэм, Х-н-Х (США) [🎵 YouTube Music](https://music.youtube.com/playlist?list=PLeRIoOrY1bYQm1JIzIbYQk0w9PE8FAfgy) [📺 YouTube](https://youtube.com/playlist?list=PLeRIoOrY1bYQm1JIzIbYQk0w9PE8FAfgy)
+- [143] 17.10.25 - 🤟🏻💀 -- Экстренный выпуск COVERED - 4-я часть: Трибьют Эйсу Фрили (KISS) [🎵 YouTube Music](https://music.youtube.com/playlist?list=PLeRIoOrY1bYQheisCk7QjwsAQlIy_SMo0) [📺 YouTube](https://youtube.com/playlist?list=PLeRIoOrY1bYQheisCk7QjwsAQlIy_SMo0)
+- [144] 20.10.25 🤟🏻💀 -- Обзор ДЕТ МЕТАЛ сцены ДАНИИ ☠️🎸[🎵 YouTube Music](https://music.youtube.com/playlist?list=PLeRIoOrY1bYQSN3dB6_t6p1k5tv9f8nG6) [📺 YouTube](https://youtube.com/playlist?list=PLeRIoOrY1bYQSN3dB6_t6p1k5tv9f8nG6)
 
