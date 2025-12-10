@@ -233,5 +233,16 @@ THRASH o MUERTE - это радиопрограмма, посвященная э
 - [141] 06.10.25 - 🤟🏻💀 -- СПЕЦПРОГРАММА ! Обзор самых крутых МАСКОТОВ 👺 🎸 (талисманов) метал групп [🎵 YouTube Music](https://music.youtube.com/playlist?list=PLeRIoOrY1bYSuwCbKIGa63KZAJ33KfKmc) [📺 YouTube](https://youtube.com/playlist?list=PLeRIoOrY1bYSuwCbKIGa63KZAJ33KfKmc)
 - [142] 13.10.25 - 🤟🏻💀 -- ЯНГ БЛАД 🩸🎸 - 6-й блок цикла: Хард, АОР, Глэм, Х-н-Х (США) [🎵 YouTube Music](https://music.youtube.com/playlist?list=PLeRIoOrY1bYQm1JIzIbYQk0w9PE8FAfgy) [📺 YouTube](https://youtube.com/playlist?list=PLeRIoOrY1bYQm1JIzIbYQk0w9PE8FAfgy)
 - [143] 17.10.25 - 🤟🏻💀 -- Экстренный выпуск COVERED - 4-я часть: Трибьют Эйсу Фрили (KISS) [🎵 YouTube Music](https://music.youtube.com/playlist?list=PLeRIoOrY1bYQheisCk7QjwsAQlIy_SMo0) [📺 YouTube](https://youtube.com/playlist?list=PLeRIoOrY1bYQheisCk7QjwsAQlIy_SMo0)
-- [144] 20.10.25 🤟🏻💀 -- Обзор ДЕТ МЕТАЛ сцены ДАНИИ ☠️🎸[🎵 YouTube Music](https://music.youtube.com/playlist?list=PLeRIoOrY1bYQSN3dB6_t6p1k5tv9f8nG6) [📺 YouTube](https://youtube.com/playlist?list=PLeRIoOrY1bYQSN3dB6_t6p1k5tv9f8nG6)
+- [144] 20.10.25 - 🤟🏻💀 -- Обзор ДЕТ МЕТАЛ сцены ДАНИИ ☠️🎸[🎵 YouTube Music](https://music.youtube.com/playlist?list=PLeRIoOrY1bYQSN3dB6_t6p1k5tv9f8nG6) [📺 YouTube](https://youtube.com/playlist?list=PLeRIoOrY1bYQSN3dB6_t6p1k5tv9f8nG6)
+- [145] 27.10.25 - 🤟🏻💀 -- ЯНГ БЛАД 🩸🎸 - 2-я часть 6-го выпуска: Хард, Х-н-Х, Глэм (Европа) [🎵 YouTube Music](https://music.youtube.com/playlist?list=PLeRIoOrY1bYTo9G5VXX4r64C01tCEnmuk) [📺 YouTube](https://youtube.com/playlist?list=PLeRIoOrY1bYTo9G5VXX4r64C01tCEnmuk)
+- [146] 31.10.25 - 🤟🏻💀 -- ПРАЗДНИЧНЫЙ ВЫПУСК! 🎃 Обзор HORROR PUNK 👹🧙🏻‍♀️🤟🏻🎸 [🎵 YouTube Music](https://music.youtube.com/playlist?list=PLeRIoOrY1bYTBmKRktriB1syKgcqQO4Ot) [📺 YouTube](https://youtube.com/playlist?list=PLeRIoOrY1bYTBmKRktriB1syKgcqQO4Ot)
+
+### Ноябрь
+- [147] 20.11.25 - 🤟🏻💀 -- Обзор Эквадорского Трэша [🎵 YouTube Music](https://music.youtube.com/playlist?list=PLeRIoOrY1bYQkcc2dmZYl7hAgturHa7FC) [📺 YouTube](https://youtube.com/playlist?list=PLeRIoOrY1bYQkcc2dmZYl7hAgturHa7FC)
+
+### Декабрь
+- [148] 01.12.25 - 🤟🏻💀 -- Тематическая программа: Пираты в Метале ⚓🏝️💣🖤🏴‍☠️ [🎵 YouTube Music](https://music.youtube.com/playlist?list=PLeRIoOrY1bYShSMa6zP8Y0E7db8WmPlf7) [📺 YouTube](https://youtube.com/playlist?list=PLeRIoOrY1bYShSMa6zP8Y0E7db8WmPlf7)
+- [149] 08.12.25 - 🤟🏻💀 -- ЯНГ БЛАД 🎸🤘🏼🩸 - 7-я часть: ДЕТ МЕТАЛ Северной Америки 💀 (часть 1) [🎵 YouTube Music](https://music.youtube.com/playlist?list=PLeRIoOrY1bYRcRmYjr02l81dPHx-QHL0L) [📺 YouTube](https://youtube.com/playlist?list=PLeRIoOrY1bYRcRmYjr02l81dPHx-QHL0L)
+
+
 
