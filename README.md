@@ -243,6 +243,7 @@ THRASH o MUERTE - это радиопрограмма, посвященная э
 ### Декабрь
 - [148] 01.12.25 - 🤟🏻💀 -- Тематическая программа: Пираты в Метале ⚓🏝️💣🖤🏴‍☠️ [🎵 YouTube Music](https://music.youtube.com/playlist?list=PLeRIoOrY1bYShSMa6zP8Y0E7db8WmPlf7) [📺 YouTube](https://youtube.com/playlist?list=PLeRIoOrY1bYShSMa6zP8Y0E7db8WmPlf7)
 - [149] 08.12.25 - 🤟🏻💀 -- ЯНГ БЛАД 🎸🤘🏼🩸 - 7-я часть: ДЕТ МЕТАЛ Северной Америки 💀 (часть 1) [🎵 YouTube Music](https://music.youtube.com/playlist?list=PLeRIoOrY1bYRcRmYjr02l81dPHx-QHL0L) [📺 YouTube](https://youtube.com/playlist?list=PLeRIoOrY1bYRcRmYjr02l81dPHx-QHL0L)
-
+- [150] 12.12.25 🤟🏻💀 -- АНТОЛОГИЯ Русского ХМР, часть 3-я. Российский Хэви/Трэш 90-х и начала 2000-х годов 🤘🏼🎸🐻
+[🎵 YouTube Music](https://music.youtube.com/playlist?list=PLeRIoOrY1bYQzap9O6fvXIFMfXKLN_7iK) [📺 YouTube](https://youtube.com/playlist?list=PLeRIoOrY1bYQzap9O6fvXIFMfXKLN_7iK)
 
 
