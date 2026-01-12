@@ -245,3 +245,10 @@ THRASH o MUERTE - это радиопрограмма, посвященная э
 - [149] 08.12.25 - 🤟🏻💀 -- ЯНГ БЛАД 🎸🤘🏼🩸 - 7-я часть: ДЕТ МЕТАЛ Северной Америки 💀 (часть 1) [🎵 YouTube Music](https://music.youtube.com/playlist?list=PLeRIoOrY1bYRcRmYjr02l81dPHx-QHL0L) [📺 YouTube](https://youtube.com/playlist?list=PLeRIoOrY1bYRcRmYjr02l81dPHx-QHL0L)
 - [150] 12.12.25 🤟🏻💀 -- АНТОЛОГИЯ Русского ХМР, часть 3-я. Российский Хэви/Трэш 90-х и начала 2000-х годов 🤘🏼🎸🐻 [🎵 YouTube Music](https://music.youtube.com/playlist?list=PLeRIoOrY1bYQzap9O6fvXIFMfXKLN_7iK) [📺 YouTube](https://youtube.com/playlist?list=PLeRIoOrY1bYQzap9O6fvXIFMfXKLN_7iK)
 - [151] 15.12.25 🤟🏻💀 -- ЯНГ БЛАД 🩸🤘🏼🎸 - 7-я часть (часть 2): ДЕТ МЕТАЛ Европы 💀 [🎵 YouTube Music](https://music.youtube.com/playlist?list=PLeRIoOrY1bYSKc2H4mmytCWpzNj6HVamR) [📺 YouTube](https://youtube.com/playlist?list=PLeRIoOrY1bYSKc2H4mmytCWpzNj6HVamR)
+- [152] 26.12.25 🤟🏻💀 -- ИТОГИ 2025, ч.1: ГЕРМАНИЯ [🎵 YouTube Music](https://music.youtube.com/playlist?list=PLeRIoOrY1bYRV3KjQAoxt47_cTageN8ne) [📺 YouTube](https://youtube.com/playlist?list=PLeRIoOrY1bYRV3KjQAoxt47_cTageN8ne)
+- [153] 29.12.25 🤟🏻💀 -- ИТОГИ 2025, ч.2: США [🎵 YouTube Music](https://music.youtube.com/playlist?list=PLeRIoOrY1bYQ2AkkOYLlgLUTvHlTGQ4QU) [📺 YouTube](https://youtube.com/playlist?list=PLeRIoOrY1bYQ2AkkOYLlgLUTvHlTGQ4QU)
+
+## 2026
+
+### Январь
+- [154] 02.01.26 🤟🏻💀 -- Спешел: Творчество Лавкрафта в Тяжелом Роке 👁🐸🐲🐉🪐 [🎵 YouTube Music](https://music.youtube.com/playlist?list=PLeRIoOrY1bYQFEV4ZuoL7tgy6byXETenW) [📺 YouTube](https://youtube.com/playlist?list=PLeRIoOrY1bYQFEV4ZuoL7tgy6byXETenW)
