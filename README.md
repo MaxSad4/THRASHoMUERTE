@@ -265,3 +265,8 @@ THRASH o MUERTE - это радиопрограмма, посвященная э
 - [163] 03.02.26 🤟🏻💀 -- ИТОГИ-25. Вып.10-й (последний): по заявкам — ДЕСЯТКА альбомов (Дум/Прогдет) [🎵 YouTube Music](https://music.youtube.com/playlist?list=PLeRIoOrY1bYTZhVeGCdOWiMNcQ1H_FM0L) [📺 YouTube](https://youtube.com/playlist?list=PLeRIoOrY1bYTZhVeGCdOWiMNcQ1H_FM0L)
 - [164] 09.02.26 🤟🏻💀 -- ЖЗЛ (Жизнь Замечательных Людей). Вып.1: Дэн Свано [🎵 YouTube Music](https://music.youtube.com/playlist?list=PLeRIoOrY1bYSrIA3mPZP9mr8UtckEWbEX) [📺 YouTube](https://youtube.com/playlist?list=PLeRIoOrY1bYSrIA3mPZP9mr8UtckEWbEX)
 - [165] 16.02.26 🤟🏻💀 -- ЯНГ БЛАД 🎸🩸🤘 Вып.9: молодой Блэк Скандинавии [🎵 YouTube Music](https://music.youtube.com/playlist?list=PLeRIoOrY1bYRfwMm_ll2me8CQ409xf8tF) [📺 YouTube](https://youtube.com/playlist?list=PLeRIoOrY1bYRfwMm_ll2me8CQ409xf8tF)
+- [166] 23.02.26 🤟🏻💀 -- История стиля: WAR METAL [🎵 YouTube Music](https://music.youtube.com/playlist?list=PLeRIoOrY1bYQte9xjdXxd-IIJ1QYhqNDq) [📺 YouTube](https://youtube.com/playlist?list=PLeRIoOrY1bYQte9xjdXxd-IIJ1QYhqNDq)
+- [167] 24.02.26 🤟🏻💀 -- COVERED VENOM. Вып.5-й, ч.1: Welcome to Hell [🎵 YouTube Music](https://music.youtube.com/playlist?list=PLeRIoOrY1bYSSWOEo5kH_oJ2sn3LctNDs) [📺 YouTube](https://youtube.com/playlist?list=PLeRIoOrY1bYSSWOEo5kH_oJ2sn3LctNDs)
+
+### Март
+- [168] 08.03.26 🤟🏻💀 -- ЛЬВИЦЫ РОКА-3: Экстремальный метал с женским лицом [🎵 YouTube Music](https://music.youtube.com/playlist?list=PLeRIoOrY1bYR-mHN6Aupoii_J8VtuxZrd) [📺 YouTube](https://youtube.com/playlist?list=PLeRIoOrY1bYR-mHN6Aupoii_J8VtuxZrd)
