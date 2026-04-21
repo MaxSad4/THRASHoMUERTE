@@ -270,3 +270,10 @@ THRASH o MUERTE - это радиопрограмма, посвященная э
 
 ### Март
 - [168] 08.03.26 🤟🏻💀 -- ЛЬВИЦЫ РОКА-3: Экстремальный метал с женским лицом [🎵 YouTube Music](https://music.youtube.com/playlist?list=PLeRIoOrY1bYR-mHN6Aupoii_J8VtuxZrd) [📺 YouTube](https://youtube.com/playlist?list=PLeRIoOrY1bYR-mHN6Aupoii_J8VtuxZrd)
+- [169] 19.03.26 🤟🏻💀 -- COVERED-5 ч.2: трибут VENOM — «Black Metal» (82) 🎸👹 [🎵 YouTube Music](https://music.youtube.com/playlist?list=PLeRIoOrY1bYS7KfSgpd4_n5gsJQxkT8ri) [📺 YouTube](https://youtube.com/playlist?list=PLeRIoOrY1bYS7KfSgpd4_n5gsJQxkT8ri)
+- [170] 23.03.26 🤟🏻💀 -- ИСТОРИЯ СТИЛЯ 🎸📖: DUNGEON — становление направления [🎵 YouTube Music](https://music.youtube.com/playlist?list=PLeRIoOrY1bYQQoJgkv7KkYEvqcNwyGhgf) [📺 YouTube](https://youtube.com/playlist?list=PLeRIoOrY1bYQQoJgkv7KkYEvqcNwyGhgf)
+- [171] 30.03.26 🤟🏻💀 -- ЖЗЛ · Fallen Heroes: Росс «the Boss» Фридман (траурный выпуск) [🎵 YouTube Music](https://music.youtube.com/playlist?list=PLeRIoOrY1bYQ0ME227sZsHIuryx-8nlj9) [📺 YouTube](https://youtube.com/playlist?list=PLeRIoOrY1bYQ0ME227sZsHIuryx-8nlj9)
+
+### Апрель
+- [172] 13.04.26 🤟🏻💀 -- ЯНГ БЛАД 🎸🤘🩸 Вып.10 (ч.1): Дум потяжелее — фьюнерал, дет/дум [🎵 YouTube Music](https://music.youtube.com/playlist?list=PLeRIoOrY1bYS0ZlN3ERSwR5OsKAnIuRgQ) [📺 YouTube](https://youtube.com/playlist?list=PLeRIoOrY1bYS0ZlN3ERSwR5OsKAnIuRgQ)
+- [173] 20.04.26 🤟🏻💀 -- ЯНГ БЛАД 🎸🩸🤘 Вып.10 ч.2: готик-дум / дум-дарк-гот [🎵 YouTube Music](https://music.youtube.com/playlist?list=PLeRIoOrY1bYQZnbpgBqcWvhmgpqWfo1Jt) [📺 YouTube](https://youtube.com/playlist?list=PLeRIoOrY1bYQZnbpgBqcWvhmgpqWfo1Jt)
