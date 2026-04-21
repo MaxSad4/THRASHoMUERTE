@@ -275,5 +275,6 @@ THRASH o MUERTE - это радиопрограмма, посвященная э
 - [171] 30.03.26 🤟🏻💀 -- ЖЗЛ · Fallen Heroes: Росс «the Boss» Фридман (траурный выпуск) [🎵 YouTube Music](https://music.youtube.com/playlist?list=PLeRIoOrY1bYQ0ME227sZsHIuryx-8nlj9) [📺 YouTube](https://youtube.com/playlist?list=PLeRIoOrY1bYQ0ME227sZsHIuryx-8nlj9)
 
 ### Апрель
-- [172] 13.04.26 🤟🏻💀 -- ЯНГ БЛАД 🎸🤘🩸 Вып.10 (ч.1): Дум потяжелее — фьюнерал, дет/дум [🎵 YouTube Music](https://music.youtube.com/playlist?list=PLeRIoOrY1bYS0ZlN3ERSwR5OsKAnIuRgQ) [📺 YouTube](https://youtube.com/playlist?list=PLeRIoOrY1bYS0ZlN3ERSwR5OsKAnIuRgQ)
-- [173] 20.04.26 🤟🏻💀 -- ЯНГ БЛАД 🎸🩸🤘 Вып.10 ч.2: готик-дум / дум-дарк-гот [🎵 YouTube Music](https://music.youtube.com/playlist?list=PLeRIoOrY1bYQZnbpgBqcWvhmgpqWfo1Jt) [📺 YouTube](https://youtube.com/playlist?list=PLeRIoOrY1bYQZnbpgBqcWvhmgpqWfo1Jt)
+- [172] 06.04.26 🤟🏻💀 -- Трэш-сцена Бангладеша (экзотика) [🎵 YouTube Music](https://music.youtube.com/playlist?list=PLeRIoOrY1bYR-zd0n3KsfdMm44XzwYUVK) [📺 YouTube](https://youtube.com/playlist?list=PLeRIoOrY1bYR-zd0n3KsfdMm44XzwYUVK)
+- [173] 13.04.26 🤟🏻💀 -- ЯНГ БЛАД 🎸🤘🩸 Вып.10 (ч.1): Дум потяжелее — фьюнерал, дет/дум [🎵 YouTube Music](https://music.youtube.com/playlist?list=PLeRIoOrY1bYS0ZlN3ERSwR5OsKAnIuRgQ) [📺 YouTube](https://youtube.com/playlist?list=PLeRIoOrY1bYS0ZlN3ERSwR5OsKAnIuRgQ)
+- [174] 20.04.26 🤟🏻💀 -- ЯНГ БЛАД 🎸🩸🤘 Вып.10 ч.2: готик-дум / дум-дарк-гот [🎵 YouTube Music](https://music.youtube.com/playlist?list=PLeRIoOrY1bYQZnbpgBqcWvhmgpqWfo1Jt) [📺 YouTube](https://youtube.com/playlist?list=PLeRIoOrY1bYQZnbpgBqcWvhmgpqWfo1Jt)
