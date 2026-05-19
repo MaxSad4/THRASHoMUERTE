@@ -282,3 +282,4 @@ THRASH o MUERTE - это радиопрограмма, посвященная э
 
 ### Май
 - [176] 04.05.26 🤟🏻💀 -- ВСПОМНИТЬ ВСЕ · 21 век 🧠🌍🤘 — вып.1: год 2001 [🎵 YouTube Music](https://music.youtube.com/playlist?list=PLeRIoOrY1bYRhA6fctv3_minRenL26_nI) [📺 YouTube](https://youtube.com/playlist?list=PLeRIoOrY1bYRhA6fctv3_minRenL26_nI)
+- [177] 18.05.26 🤟🏻💀 -- ВСПОМНИТЬ ВСЕ · 21 век 🧠🌍🤘 — вып.2: год 2002 [🎵 YouTube Music](https://music.youtube.com/playlist?list=PLeRIoOrY1bYT6LpBlgLb6thsCh0nYfDFr) [📺 YouTube](https://youtube.com/playlist?list=PLeRIoOrY1bYT6LpBlgLb6thsCh0nYfDFr)
