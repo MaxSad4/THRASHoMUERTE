@@ -283,3 +283,12 @@ THRASH o MUERTE - это радиопрограмма, посвященная э
 ### Май
 - [176] 04.05.26 🤟🏻💀 -- ВСПОМНИТЬ ВСЕ · 21 век 🧠🌍🤘 — вып.1: год 2001 [🎵 YouTube Music](https://music.youtube.com/playlist?list=PLeRIoOrY1bYRhA6fctv3_minRenL26_nI) [📺 YouTube](https://youtube.com/playlist?list=PLeRIoOrY1bYRhA6fctv3_minRenL26_nI)
 - [177] 18.05.26 🤟🏻💀 -- ВСПОМНИТЬ ВСЕ · 21 век 🧠🌍🤘 — вып.2: год 2002 [🎵 YouTube Music](https://music.youtube.com/playlist?list=PLeRIoOrY1bYT6LpBlgLb6thsCh0nYfDFr) [📺 YouTube](https://youtube.com/playlist?list=PLeRIoOrY1bYT6LpBlgLb6thsCh0nYfDFr)
+- [178] 25.05.26 🤟🏻💀 -- СПЕЦЗАКАЗ · Хэви Метал · 1-я Мировая Война ☠️🌍🎸 [🎵 YouTube Music](https://music.youtube.com/playlist?list=PLezC-IHzW9Cs) [📺 YouTube](https://youtube.com/playlist?list=PLezC-IHzW9Cs)
+
+### Июнь
+- [179] 01.06.26 🤟🏻💀 -- СПЕЦЗАКАЗ · Хэви Метал · 2-я Мировая Война ☠️🎸🌍 [🎵 YouTube Music](https://music.youtube.com/playlist?list=PLCpqziHEYAYI) [📺 YouTube](https://youtube.com/playlist?list=PLCpqziHEYAYI)
+- [180] 08.06.26 🤟🏻💀 -- ВСПОМНИТЬ ВСЕ · 21 век 🧠🌍🤘 — вып.3: год 2003 [🎵 YouTube Music](https://music.youtube.com/playlist?list=PLQhi6HR1A-Cg) [📺 YouTube](https://youtube.com/playlist?list=PLQhi6HR1A-Cg)
+- [181] 15.06.26 🤟🏻💀 -- РЕТРО УГАР-2 · олдовые группы «на раз» [🎵 YouTube Music](https://music.youtube.com/playlist?list=PLOe-67T-_PP0) [📺 YouTube](https://youtube.com/playlist?list=PLOe-67T-_PP0)
+
+### Июль
+- [182] 27.07.26 🤟🏻💀 -- ВСПОМНИТЬ ВСЕ · 21 век 🧠🤘🌎 — вып.4: год 2004 [🎵 YouTube Music](https://music.youtube.com/playlist?list=PLexT6tYCM0co) [📺 YouTube](https://youtube.com/playlist?list=PLexT6tYCM0co)
