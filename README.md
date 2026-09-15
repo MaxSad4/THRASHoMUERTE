@@ -292,6 +292,12 @@ THRASH o MUERTE - это радиопрограмма, посвященная э
 
 ### Июль
 - [182] 27.07.26 🤟🏻💀 -- ВСПОМНИТЬ ВСЕ · 21 век 🧠🤘🌎 — вып.4: год 2004 [🎵 YouTube Music](https://music.youtube.com/playlist?list=PLexT6tYCM0co) [📺 YouTube](https://youtube.com/playlist?list=PLexT6tYCM0co)
+
+### Август
 - [183] 03.08.26 🤟🏻💀 -- ИСТОРИЯ СТИЛЯ · NSBM · начальный этап [🎵 YouTube Music](https://music.youtube.com/playlist?list=PLTwJUPkLxFNM) [📺 YouTube](https://youtube.com/playlist?list=PLTwJUPkLxFNM)
 - [184] 12.08.26 🤟🏻💀 -- ЖЗЛ · Кай Хансен · Отец немецкого Пауэр Метал [🎵 YouTube Music](https://music.youtube.com/playlist?list=PLEIZMKNiwbng) [📺 YouTube](https://youtube.com/playlist?list=PLEIZMKNiwbng)
 - [185] 24.08.26 🤟🏻💀 -- ВСПОМНИТЬ ВСЕ · 21 век 🌎🧠🤘 — вып.5: год 2005 [🎵 YouTube Music](https://music.youtube.com/playlist?list=PLcKVFsyf_K_E) [📺 YouTube](https://youtube.com/playlist?list=PLcKVFsyf_K_E)
+- [186] 31.08.26 🤟🏻💀 -- Олдовый метал Бельгии 🇧🇪 [🎵 YouTube Music](https://music.youtube.com/playlist?list=PLGiqytyhFOOU) [📺 YouTube](https://youtube.com/playlist?list=PLGiqytyhFOOU)
+
+### Сентябрь
+[187] 10.09.26 🤟🏻💀 -- ВСПОМНИТЬ ВСЕ · 21 век 🤘🧠🌎 — вып.6: год 2006 [🎵 YouTube Music](https://music.youtube.com/playlist?list=PLcj7lmrCAEDc) [📺 YouTube](https://youtube.com/playlist?list=PLcj7lmrCAEDc)
