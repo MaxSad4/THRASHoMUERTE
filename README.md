@@ -300,4 +300,4 @@ THRASH o MUERTE - это радиопрограмма, посвященная э
 - [186] 31.08.26 🤟🏻💀 -- Олдовый метал Бельгии 🇧🇪 [🎵 YouTube Music](https://music.youtube.com/playlist?list=PLGiqytyhFOOU) [📺 YouTube](https://youtube.com/playlist?list=PLGiqytyhFOOU)
 
 ### Сентябрь
-[187] 10.09.26 🤟🏻💀 -- ВСПОМНИТЬ ВСЕ · 21 век 🤘🧠🌎 — вып.6: год 2006 [🎵 YouTube Music](https://music.youtube.com/playlist?list=PLcj7lmrCAEDc) [📺 YouTube](https://youtube.com/playlist?list=PLcj7lmrCAEDc)
+- [187] 10.09.26 🤟🏻💀 -- ВСПОМНИТЬ ВСЕ · 21 век 🤘🧠🌎 — вып.6: год 2006 [🎵 YouTube Music](https://music.youtube.com/playlist?list=PLcj7lmrCAEDc) [📺 YouTube](https://youtube.com/playlist?list=PLcj7lmrCAEDc)
