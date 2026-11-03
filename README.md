@@ -303,3 +303,12 @@ THRASH o MUERTE - это радиопрограмма, посвященная э
 - [187] 10.09.26 🤟🏻💀 -- ВСПОМНИТЬ ВСЕ · 21 век 🤘🧠🌎 — вып.6: год 2006 [🎵 YouTube Music](https://music.youtube.com/playlist?list=PLcj7lmrCAEDc) [📺 YouTube](https://youtube.com/playlist?list=PLcj7lmrCAEDc)
 - [188] 17.09.26 🤟🏻💀 -- ИСТОРИЯ СТИЛЯ · Avangarde Black Metal · становление [🎵 YouTube Music](https://music.youtube.com/playlist?list=PLbPCe7LSqOw0) [📺 YouTube](https://youtube.com/playlist?list=PLbPCe7LSqOw0)
 - [189] 24.09.26 🤟🏻💀 -- ВСПОМНИТЬ ВСЕ · 21 век 🧠🌎🤘 — вып.7: год 2007 [🎵 YouTube Music](https://music.youtube.com/playlist?list=PLQgf4Kbaj30c) [📺 YouTube](https://youtube.com/playlist?list=PLQgf4Kbaj30c)
+
+### Октябрь
+- [190] 06.10.26 🤟🏻💀 -- ЖЗЛ 🤘👑 · Петер Тэгтгрен · вып.4 [🎵 YouTube Music](https://music.youtube.com/playlist?list=PLHFrA2ocYMs4) [📺 YouTube](https://youtube.com/playlist?list=PLHFrA2ocYMs4)
+- [191] 15.10.26 🤟🏻💀 -- ЖЗЛ · Герои становления бразильской 🇧🇷 метал-сцены · вып.5 [🎵 YouTube Music](https://music.youtube.com/playlist?list=PLenh-Z2jN4cc) [📺 YouTube](https://youtube.com/playlist?list=PLenh-Z2jN4cc)
+- [192] 22.10.26 🤟🏻💀 -- ВСПОМНИТЬ ВСЕ · 21 век 🤘🧠🌍 — вып.8: год 2008 [🎵 YouTube Music](https://music.youtube.com/playlist?list=PLNwmK3TROX_w) [📺 YouTube](https://youtube.com/playlist?list=PLNwmK3TROX_w)
+- [193] 29.10.26 🤟🏻💀 -- COVERED · MAYHEM · De Mysteriis Dom Sathanas · вып.6 [🎵 YouTube Music](https://music.youtube.com/playlist?list=PLPD8gI43eNy8) [📺 YouTube](https://youtube.com/playlist?list=PLPD8gI43eNy8)
+
+### Ноябрь
+- [194] 01.11.26 🤟🏻💀 -- КИНОШОКЕР 🎥🎸 · Хэллоуин · Майкл Майерс · вып.8 [🎵 YouTube Music](https://music.youtube.com/playlist?list=PLH2WbNFWgpF8) [📺 YouTube](https://youtube.com/playlist?list=PLH2WbNFWgpF8)
